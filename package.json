@@ -1,0 +1,13 @@
+{
+  "name": "rasa",
+  "private": true,
+  "scripts": {
+    "format": "oxfmt .",
+    "format:check": "oxfmt --check .",
+    "lint": "oxlint --ignore-path .gitignore --no-error-on-unmatched-pattern ."
+  },
+  "devDependencies": {
+    "oxfmt": "^0.50.0",
+    "oxlint": "^1.65.0"
+  }
+}
