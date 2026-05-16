@@ -7,6 +7,7 @@ Covered the local collection graph rooted at `/discover/all-collections`.
 Included:
 
 - The All Collections index
+- The local framework cooking guide for interpreting recipe pages
 - Every collection link visible on the index
 - Every recipe link visible on covered collection pages as a local recipe page with metadata, ingredients, instructions, and collection backlinks
 
@@ -18,7 +19,7 @@ Excluded from full transcription:
 
 - Collections: 78
 - Recipe pages: 325
-- Markdown files: 406
+- Markdown files: 407
 
 ## Covered Collection Source Paths
 

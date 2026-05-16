@@ -2,6 +2,10 @@
 
 Local Markdown conversion of the Cookwell recipe collections index, rooted at `/discover/all-collections`.
 
+## How To Use These Recipes
+
+- [Framework Cooking Guide](./framework-cooking.md)
+
 ## Collections
 
 - [Add Chimichurri to These Recipes...](./entries/add-chimichurri-to-these-recipes.md)
