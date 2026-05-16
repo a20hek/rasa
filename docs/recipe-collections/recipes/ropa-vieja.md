@@ -43,7 +43,7 @@ A Cuban staple of shredded beef and stewed peppers.
 
 ### Step 1: Sear the meat
 
-Preheat an oven to 300°F/148°C.
+Preheat an oven to 148°C.
 
 Generously sprinkle the meat with salt on all sides. Heat a heavy pot or dutch oven over medium heat, and add enough oil to coat the bottom. In batches, sear the meat until browned on each side. Remove from the pan and set aside. Leave any fat in the pan.
 

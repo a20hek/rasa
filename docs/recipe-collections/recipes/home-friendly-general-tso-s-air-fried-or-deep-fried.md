@@ -76,7 +76,7 @@ Now choose one of the following three methods to fry your nuggets for the dish:
 
 ### Step 4: Option 1: Air fried only
 
-To air fry, give the dredged chicken bites an initial spray of oil all over. Then toss them into the air fryer of choice for 12 minutes at 400°F/ 204°C.
+To air fry, give the dredged chicken bites an initial spray of oil all over. Then toss them into the air fryer of choice for 12 minutes at 204°C.
 
 To promote even cooking and browning, at 5 minutes take the basket out and give them another spritz before shaking them up and sliding them back in.
 
@@ -86,7 +86,7 @@ Proceed to the sauce & serve step.
 
 ### Step 5: Option 2: Double deep fried
 
-Set a wok or pot over medium-high heat and pour in about 2 inches of neutral oil and bring it to 325°F/ 163°C.
+Set a wok or pot over medium-high heat and pour in about 2 inches of neutral oil and bring it to 163°C.
 
 Once the oil is hot, working in batches, just drop in the dredged nuggets. With the double fry technique, the first fry is about just cooking the chicken through and starting to get some color.
 
@@ -98,7 +98,7 @@ You can let the nuggets rest for 10 mins or double-fry them right away as well.
 
 To double fry:
 
-Bring your frying oil setup to to 375°F/ 190°C.
+Bring your frying oil setup to to 190°C.
 
 If using frozen nuggets, you can go straight from the freezer but work in small batches and be weary of splatter.
 
@@ -112,7 +112,7 @@ If you froze a batch of deep-fried nuggets, you can just air fry them to warm th
 
 Take the nuggets out of the freezer and add a serving directly to the air fryer basket. Optionally spritz with oil.
 
-Air fry for just 6 minutes at 400°F or until warmed through and crisp.
+Air fry for just 6 minutes at 204°C or until warmed through and crisp.
 
 Proceed to the sauce & serve step.
 

@@ -69,7 +69,7 @@ Preheat a pan over high heat. Add a drizzle of oil to coat the bottom of the pan
 
 Flip over the chicken to finish the cooking and set the crust on the other side. If your breast was thinned out you should be able to cook it through in the pan without burning the seasoning.
 
-Use a thermometer to ensure the chicken has hit at least 155°F/68°C before pulling it off the heat.
+Use a thermometer to ensure the chicken has hit at least 68°C before pulling it off the heat.
 
 Let the chicken rest for a few minutes before dicing into cubes for the bowl.
 

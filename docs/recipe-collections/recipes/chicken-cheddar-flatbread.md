@@ -48,7 +48,7 @@ Leave them undisturbed for a few minutes. Use this time to clean or gather remai
 
 Once the thighs have developed browning on the bottom, flip them, revealing their cumin-seed crust.
 
-Continue searing the chicken on the other side to finish cooking. Remove from the pan once it reaches an internal temp of 175°F/80°C.
+Continue searing the chicken on the other side to finish cooking. Remove from the pan once it reaches an internal temp of 80°C.
 
 Meanwhile, make the sauce: mix yogurt and hot sauce until smooth. Taste and adjust as desired.
 

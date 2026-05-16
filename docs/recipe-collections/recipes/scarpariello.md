@@ -40,7 +40,7 @@ It’s a hearty and crowd-pleasing dish.
 
 ### Step 1: Sear the meat
 
-Preheat an oven to 350°F/176°C.
+Preheat an oven to 176°C.
 
 Generously sprinkle the chicken pieces with salt. Slice the sausage into bite sized pieces.
 
@@ -66,7 +66,7 @@ The broth can submerge most of the vegetables and some of the sausage, but the c
 
 Slide the pan into the preheated oven and bake uncovered for ~25 minutes or until the chicken pieces are fully cooked through, the broth has reduced and softened the vegetables.
 
-Use a thermometer. The chicken internal temperature should be at least 175°F/80°C.
+Use a thermometer. The chicken internal temperature should be at least 80°C.
 
 Taste the broth/vegetables and adjust with more salt, pepper, or an extra splash of vinegar for acidity. Garnish with parsley and serve.
 

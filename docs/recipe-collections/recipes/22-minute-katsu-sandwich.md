@@ -61,11 +61,11 @@ Lightly coat both sides of the chicken in the flour, then move it to the egg, an
 
 ### Step 3: Fry the chicken
 
-At the stove, use a thermometer to verify the oil is between 325-350°F/162-176°C.
+At the stove, use a thermometer to verify the oil is between 162-176°C.
 
 Slowly drop the chicken into the oil until it becomes golden brown. Fry the chicken for about 7 to 8 minutes, slightly agitating it throughout.
 
-When the internal temperature reaches 155°F/68°C, transfer the chicken to a paper towel on a wire rack, dab the excess oil, and then move it to the wire rack so it doesn't get soggy.
+When the internal temperature reaches 68°C, transfer the chicken to a paper towel on a wire rack, dab the excess oil, and then move it to the wire rack so it doesn't get soggy.
 
 While the chicken fries, prepare the sandwich toppings, wash the cutting board and breading plates, and wipe down your work surfaces. Always clean as you go.
 

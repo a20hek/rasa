@@ -82,7 +82,7 @@ Taste it. Add salt and sugar to taste. Take the sauce off the heat, remove the s
 
 Place the sauce back on the heat and nestle in the seared meatballs to finish cooking them through.
 
-Simmer the meatballs and sauce for an additional 8-10 minutes or until the internal temperature of the meatballs reads 150°F/65°C. Turn off the heat.
+Simmer the meatballs and sauce for an additional 8-10 minutes or until the internal temperature of the meatballs reads 65°C. Turn off the heat.
 
 ### Step 5: Assemble, broil, & serve
 

@@ -58,7 +58,7 @@ Blend all green goddess ranch dressing ingredients until smooth. If too thick, a
 
 ### Step 2: Roast the vegetables
 
-First, preheat the oven to 450°F/232°C.
+First, preheat the oven to 232°C.
 
 While it's heating, peel and cube your sweet potato (or other veggies you'd like to roast) into 1/2 inch pieces. Add the cubed potatoes to a baking sheet, and cover them with a light coating of neutral oil and a generous sprinkle of salt. Toss the entire tray into the preheated oven to roast for 20-30 minutes until they're crisped to your liking. You'll want to move them around halfway through to ensure some spots aren't getting too burnt.
 

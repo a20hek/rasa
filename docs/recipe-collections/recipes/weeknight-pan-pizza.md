@@ -78,7 +78,7 @@ Toss the dough in and stretch to the edges until it starts to spring back.
 
 Let rest for a final 20 minutes so you can fully stretch it to the corners before topping.
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 Use this final waiting time to do dishes, watch TV, or grab a workout.
 
@@ -90,7 +90,7 @@ Top the pizza by laying the chiles (if using) and oregano down first and follow 
 
 ### Step 7: Bake & enjoy
 
-Slide the pan into the middle rack of the preheated 450°F/232°C oven and Bake for about 20 minutes or until the crust is golden brown & crispy, and the cheese is bubbly.
+Slide the pan into the middle rack of the preheated 232°C oven and Bake for about 20 minutes or until the crust is golden brown & crispy, and the cheese is bubbly.
 
 Slide the cooked pizza onto a cooling rack for 5 minutes before slicing and enjoying.
 

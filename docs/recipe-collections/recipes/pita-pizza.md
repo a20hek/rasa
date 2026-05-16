@@ -41,7 +41,7 @@ Fresh & full of great textures.
 
 ### Step 1: Preheat the oven & pan
 
-Preheat the oven to 475°F/246°C.
+Preheat the oven to 246°C.
 
 Go ahead and place an empty sheet pan in the oven.
 
@@ -53,7 +53,7 @@ Set a cast iron over medium high heat.
 
 Then, season the chicken: set the boneless chicken thigh on a plate and add a sprinkle of salt on both sides to ensure even coverage. Add the mayo and seasonings to the chicken and rub it all over.
 
-Add the chicken to the hot pan and let it brown up on each side. Sear it until it reaches 160°F/71°C. Let it rest a few minutes before slicing it up.
+Add the chicken to the hot pan and let it brown up on each side. Sear it until it reaches 71°C. Let it rest a few minutes before slicing it up.
 
 Gather any remaining components and get ready to assemble.
 

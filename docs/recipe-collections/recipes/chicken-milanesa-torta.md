@@ -65,9 +65,9 @@ Store these in the freezer & pull them out to fry from frozen for fresh fried ch
 
 ### Step 4: Fry the chicken
 
-Set a skillet over medium heat and add about 1/4 to 1/2 inches of oil. Verify oil temperature with a thermometer, 325-350° F/162 -176° C.
+Set a skillet over medium heat and add about 1/4 to 1/2 inches of oil. Verify oil temperature with a thermometer, 162-176°C.
 
-Shallow fry frozen cutlets for 4-6 minutes, agitating occasionally. When internal temperature reaches 155° F/68° C, transfer to a paper towel on a wire rack to absorb excess oil.
+Shallow fry frozen cutlets for 4-6 minutes, agitating occasionally. When internal temperature reaches 68°C, transfer to a paper towel on a wire rack to absorb excess oil.
 
 ### Step 5: Assemble & serve
 

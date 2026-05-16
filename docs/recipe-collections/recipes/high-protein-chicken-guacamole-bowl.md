@@ -59,7 +59,7 @@ Set a griddle or pan over high heat. Once the pan is ripping hot, add drizzle of
 
 Once one side has developed a nice sear and some color, flip the breasts over.
 
-Continue searing until the internal temperature reaches 155°F/68°C. Thinned out chicken breasts should take around 5-7 minutes to reach this temp.
+Continue searing until the internal temperature reaches 68°C. Thinned out chicken breasts should take around 5-7 minutes to reach this temp.
 
 Remove from the heat and set aside to rest before dicing up the chicken for serving.
 

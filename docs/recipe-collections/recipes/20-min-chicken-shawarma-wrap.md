@@ -64,7 +64,7 @@ To pan or griddle set on high heat, press the chicken thighs flat onto the hot c
 
 Allow the chicken to sear on one side until browning develops.
 
-Meanwhile, pop a serving of frozen fries into the air fryer according to package directions, or into a preheated 450°F/230°C oven to roast until warmed through and crispy.
+Meanwhile, pop a serving of frozen fries into the air fryer according to package directions, or into a preheated 230°C oven to roast until warmed through and crispy.
 
 Use a small handful of fries per pita wrap, but the amount is up to you.
 
@@ -80,7 +80,7 @@ Taste and adjust with more seasonings, salt, lemon, or oil. Set aside.
 
 Mix the mayo, yogurt, lemon juice, za’atar, & black pepper until combined. Taste and adjust as needed, optionally thinning the texture with extra lemon juice or water.
 
-When the chicken thighs are nicely charred on each side and have reached an internal temp of 180°F/83°C, remove them from the heat.
+When the chicken thighs are nicely charred on each side and have reached an internal temp of 83°C, remove them from the heat.
 
 ### Step 5: Warm the pitas & assemble the wraps
 

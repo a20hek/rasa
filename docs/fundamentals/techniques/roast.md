@@ -16,7 +16,7 @@ Air frying is just roasting with a powerful convection fan which circulates air 
 
 > Heat Type: Convection w/ air
 
-> Air Temperature: 400°F/204°C+
+> Air Temperature: 204°C+
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Coagulation](../reactions/coagulation.md), [Dehydration](../reactions/dehydration.md)
 

@@ -38,7 +38,7 @@ Once you’ve weighed out the salt, celery powder, brown sugar, peppercorns, and
 
 ### Step 2: Cover & seal the pork belly
 
-Cover the pig belly with the cure mixture until completely covered. Vacuum seal the belly in a bag and let cure for around 7 days in the fridge (36-40°F/2-5°C) until the meat has firmed up and deepened in color.
+Cover the pig belly with the cure mixture until completely covered. Vacuum seal the belly in a bag and let cure for around 7 days in the fridge (2-5°C) until the meat has firmed up and deepened in color.
 
 If you don’t have a vacuum sealer, you can cure the belly in freezer bags or a covered container. Just make sure the pork belly is well covered by the cure and rotate as needed to keep it covered by the cure.
 
@@ -46,7 +46,7 @@ It’s normal for the cure to draw out moisture and turn it into a syrupy consis
 
 ### Step 3: Smoke the bacon
 
-After curing, it is time to smoke. Use an electric smoker, or a charcoal grill set up on indirect heat. Warm smoke the bacon somewhere between 73-104°F/22-40°C for at least 12 but up to 24 hours.
+After curing, it is time to smoke. Use an electric smoker, or a charcoal grill set up on indirect heat. Warm smoke the bacon somewhere between 22-40°C for at least 12 but up to 24 hours.
 
 This “warm” smoking temperature imparts a smoky flavor and dehydrates the meat but does not cook the bacon.
 

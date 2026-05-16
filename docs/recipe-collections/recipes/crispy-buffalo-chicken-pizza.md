@@ -62,7 +62,7 @@ Thinly slice the chicken breast across the grain.
 
 Season lightly with salt, then sear in a hot pan with a small amount of oil until just cooked through.
 
-Transfer to a bowl and set aside. Preheat the oven to 400°F/205°.
+Transfer to a bowl and set aside. Preheat the oven to 205°C.
 
 ### Step 3: Mix the blue cheese dressing
 
@@ -80,7 +80,7 @@ Top with cheese, making sure some reaches the edges for crisping. Add shallots a
 
 ### Step 5: Bake and finish
 
-Bake at 400°F/205°C for about 15 minutes, then increase to 450°F/230°C and continue baking until the edges are crispy and the bottom is browned, about 20–25 minutes total.
+Bake at 205°C for about 15 minutes, then increase to 230°C and continue baking until the edges are crispy and the bottom is browned, about 20–25 minutes total.
 
 Remove from the pan and slice into squares.
 

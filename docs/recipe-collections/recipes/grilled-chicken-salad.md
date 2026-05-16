@@ -55,7 +55,7 @@ Salt the chicken thighs with a even sprinkle of salt on all sides. In a small bo
 
 ### Step 2: Sear the chicken
 
-To a ripping hot griddle or cast iron, add the chicken and sear until browned on both sides. Brown the chicken until it has reached around 170°F/ 76°C. Once the chicken is cooked, pull it off the heat and let it rest a bit before slicing.
+To a ripping hot griddle or cast iron, add the chicken and sear until browned on both sides. Brown the chicken until it has reached around 76°C. Once the chicken is cooked, pull it off the heat and let it rest a bit before slicing.
 
 ### Step 3: Mix the dressing & prep the vegetables
 

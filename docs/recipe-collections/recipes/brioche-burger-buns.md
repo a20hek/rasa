@@ -40,7 +40,7 @@ Perfect, pillowy buns.
 
 ### Step 1: Activate the yeast
 
-Warm the milk in the microwave to roughly ~100°F/37°C, usually about 20-30 seconds. Add the beaten eggs, sugar, and instant dry yeast to the warm milk. Stir to combine. Set aside and let the yeast activate for 5-10 minutes.
+Warm the milk in the microwave to roughly ~37°C, usually about 20-30 seconds. Add the beaten eggs, sugar, and instant dry yeast to the warm milk. Stir to combine. Set aside and let the yeast activate for 5-10 minutes.
 
 Note: Proofing is done to test the viability of the yeast. If there is no foam surface or little bubbles the yeast is likely dead and should be discarded.
 
@@ -78,7 +78,7 @@ Place a ball in the center of each mold and gently press down with a bowl or you
 
 Cover with an inverted baking sheet or plastic wrap and let buns rise until doubled in size or fully expanded into the ring molds, about 1.5-2 hours.
 
-During the last part of proofing, preheat an oven to 350°F/176°C.
+During the last part of proofing, preheat an oven to 176°C.
 
 ### Step 6: Egg wash & bake
 
@@ -86,7 +86,7 @@ Prepare the egg wash by vigorously beating 1 egg yolk and some water in a bowl u
 
 Sprinkle the sesame seeds over the top so they stick to the bun.
 
-Bake in the preheated oven for 20 minutes or until the buns are browned and have an internal temperature of 203°F/95°C (this will ensure the inside is cooked.) Let the buns cool completely.
+Bake in the preheated oven for 20 minutes or until the buns are browned and have an internal temperature of 95°C (this will ensure the inside is cooked.) Let the buns cool completely.
 
 Note: These can be stored in a ziplock bag for 1-2 days until use. They’ll soften up a bit over time. After a few days, it's best to freeze any extra.
 

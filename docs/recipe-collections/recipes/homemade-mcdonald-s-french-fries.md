@@ -42,7 +42,7 @@ Drain the potatoes and spread them on a baking sheet lined with paper towels. Al
 
 ### Step 2: Fry the potatoes
 
-Add oil to a large wok or deep pan and heat it to 400° F/ 204°C. Meanwhile, set up a frying station with the boiled fries on the left and another baking sheet lined with paper towels to the right of the wok.
+Add oil to a large wok or deep pan and heat it to 204°C. Meanwhile, set up a frying station with the boiled fries on the left and another baking sheet lined with paper towels to the right of the wok.
 
 Divide the fries into three small batches. Using a spider or slotted spoon, carefully lower each batch of fries into the hot oil. Fry each batch for 50 seconds (use a timer), then drain them on a separate paper towel-lined baking sheet.
 
@@ -50,13 +50,13 @@ Repeat this process for the remaining batches and allow the fries to cool for 30
 
 Note: The fries can be stored in a ziplock bag or airtight container in the freezer for on-demand preparation in step 3.
 
-Afterward, return the oil to 400°F/ 204°C over high heat. Meanwhile, arrange your fry station with the potatoes on the left and a metal bowl lined with a paper towel on the right.
+Afterward, return the oil to 204°C over high heat. Meanwhile, arrange your fry station with the potatoes on the left and a metal bowl lined with a paper towel on the right.
 
 ### Step 3: Finish frying & serve
 
 Carefully lower half of the fries into the hot oil. Fry them until they are crisp, lightly golden brown, and floating, which should take about 3 to 4 minutes. Drain the fries, transfer them to a paper towel-lined bowl, and immediately season with salt.
 
-You can keep the cooked fries hot and crisp on a wire rack set on a baking sheet in a 200°F/93°C oven while you cook the second batch. Enjoy.
+You can keep the cooked fries hot and crisp on a wire rack set on a baking sheet in a 93°C oven while you cook the second batch. Enjoy.
 
 ## Appears In
 

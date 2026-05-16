@@ -18,7 +18,7 @@ Why?
 
 > Heat Type: Radiation or Conduction
 
-> Temperature: 400-500°F/204-260°C
+> Temperature: 204-260°C
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Dehydration](../reactions/dehydration.md)
 

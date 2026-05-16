@@ -34,7 +34,7 @@ Better & easier than deep fried.
 
 Set a pot of water on high heat to boil.
 
-Preheat the oven to 450°F/232°C (use the convection setting if you have it).
+Preheat the oven to 232°C (use the convection setting if you have it).
 
 Meanwhile, peel the potatoes, slice them into roughly 1/2 inch sheets, then into roughly 1/2 inch thick fries (or to your desired fry size).
 

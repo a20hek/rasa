@@ -30,7 +30,7 @@ Simple freezer broccoli side.
 
 ### Step 1: Prep the pan & broccoli
 
-Preheat the oven to 475 F°/246°C. Add a drizzle of oil to coat a sheet pan and place in the oven to preheat.
+Preheat the oven to 246°C. Add a drizzle of oil to coat a sheet pan and place in the oven to preheat.
 
 In a bowl, toss together the frozen broccoli, salt, garlic cloves, black pepper, and enough olive oil to coat.
 

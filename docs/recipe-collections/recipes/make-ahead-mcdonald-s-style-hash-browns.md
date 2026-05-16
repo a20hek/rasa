@@ -46,7 +46,7 @@ Spread the potatoes out over the towel to continue drying for a few minutes.
 
 ### Step 2: Par-fry the potatoes
 
-Meanwhile, set a wok or cast-iron skillet over low heat. Add about 2 inches of oil and let come to about 200-210°F/93-98°C. Verify with a thermometer.
+Meanwhile, set a wok or cast-iron skillet over low heat. Add about 2 inches of oil and let come to about 93-98°C. Verify with a thermometer.
 
 Once the oil is hot, add the potatoes and let them fry for 6 minutes, stirring occasionally.
 
@@ -80,15 +80,15 @@ When you are ready to enjoy these hash browns, pull however many you want out of
 
 1. Deep frying :
 
-Set a wok or pot over medium heat and fill with 1 to 2 inches of neutral oil. Heat to 350°F/176°C. Verify with a thermometer. Place each hash brown straight from the freezer to the oil. Don’t do more than 2-3 at a time. Let them fry until golden brown and crispy, about 5 minutes.
+Set a wok or pot over medium heat and fill with 1 to 2 inches of neutral oil. Heat to 176°C. Verify with a thermometer. Place each hash brown straight from the freezer to the oil. Don’t do more than 2-3 at a time. Let them fry until golden brown and crispy, about 5 minutes.
 
 2. Shallow frying :
 
-Set a cast-iron over medium heat and fill with enough peanut oil to go about halfway up the thickness of the hash brown. Heat to around 350°F/176°C. Place the hash browns straight from the freezer to the oil. Only do as many as can comfortably fit in the pan. Let them fry until just barely browning on one side, about 2-3 minutes. Flip and fry until brown on the other side. Repeat the process once more until evenly browned on both sides. Baste the hot oil over the hash browns for even browning. This takes about 6 to 8 minutes in total.
+Set a cast-iron over medium heat and fill with enough peanut oil to go about halfway up the thickness of the hash brown. Heat to around 176°C. Place the hash browns straight from the freezer to the oil. Only do as many as can comfortably fit in the pan. Let them fry until just barely browning on one side, about 2-3 minutes. Flip and fry until brown on the other side. Repeat the process once more until evenly browned on both sides. Baste the hot oil over the hash browns for even browning. This takes about 6 to 8 minutes in total.
 
 3. Baking :
 
-Preheat the oven to 450°F/232°C (425°F/218°C for convection/air fryer). Once the oven is heated, drizzle neutral oil on a baking sheet and place it in the oven for 5 minutes to heat through. Take the pan out and add hash browns from the freezer onto the baking sheet. Bake for 10 to 15 minutes then flip and bake for another 5 to 10 minutes.
+Preheat the oven to 232°C (218°C for convection/air fryer). Once the oven is heated, drizzle neutral oil on a baking sheet and place it in the oven for 5 minutes to heat through. Take the pan out and add hash browns from the freezer onto the baking sheet. Bake for 10 to 15 minutes then flip and bake for another 5 to 10 minutes.
 
 As soon as your hash browns finish cooking, sprinkle them with salt. Enjoy warm.
 

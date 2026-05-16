@@ -67,7 +67,7 @@ For this recipe, you'll only need about ~15 g of spice mix total, so you'll like
 
 Add all the spices to a container and mix them up. Cover and seal until ready to use.
 
-Preheat the oven to 350°F/ 176°C.
+Preheat the oven to 176°C.
 
 ### Step 2: Make the sauce & rinse the rice
 
@@ -89,7 +89,7 @@ Once the Jollof sauce is almost done reducing, place another pan or pot (that yo
 
 Add the reduced Jollof sauce to the pan with the rice and stir together. Add the chicken stock into the pan as well. Bring the liquid to a simmer then cover the pan with an oven-safe lid (aluminum foil works well too).
 
-Transfer the pot to the 350°F/ 176°C oven. Set a timer and bake for 30 minutes during which the rice should steam and become tender.
+Transfer the pot to the 176°C oven. Set a timer and bake for 30 minutes during which the rice should steam and become tender.
 
 Prepare the chicken thighs (below) while this is in the oven.
 
@@ -101,7 +101,7 @@ Set a cast-iron pan over medium heat and add the chicken thighs skin side down t
 
 Add the butter, sprig of fresh thyme, 2 cloves of garlic, and a sprinkle of the Jollof Spice mix. Baste the fat and spices over the top of the chicken thigh.
 
-Place the entire pan into the oven with the rice and bake until the internal temperature reaches 170°F/ 76°C.
+Place the entire pan into the oven with the rice and bake until the internal temperature reaches 76°C.
 
 If you time it right, you can have both the rice and chicken ready at the same time. Check both at the end of the 30 minutes and leave either in the oven longer, if needed (the rice should have absorbed almost all of the cooking liquid).
 

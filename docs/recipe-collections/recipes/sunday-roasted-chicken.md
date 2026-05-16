@@ -40,7 +40,7 @@ Delicious roasted chicken in 1 hour.
 
 ### Step 1: Spatchcock the chicken
 
-Preheat your oven to 475°F/246°C.
+Preheat your oven to 246°C.
 
 To begin, remove the chicken's backbone using kitchen shears. Cut along both sides of it, starting from the bottom cavity and moving towards the neck. If you prefer, you can also use a sharp chef's knife for this step.
 
@@ -60,9 +60,9 @@ For even browning, apply a thin layer of vegetable oil over the legs and breasts
 
 ### Step 3: Roast the chicken
 
-Roast your chicken for 40-50 minutes. After twenty minutes, check the bird. If the skin is browning or darkening too quickly, lower your oven temperature to 425°F/218°C.
+Roast your chicken for 40-50 minutes. After twenty minutes, check the bird. If the skin is browning or darkening too quickly, lower your oven temperature to 218°C.
 
-Use a meat thermometer to test the breast and thigh meat separately. Remove the chicken from the oven when the breast reaches 150° F/ 65° C and the thigh reaches 175° F/80° C.
+Use a meat thermometer to test the breast and thigh meat separately. Remove the chicken from the oven when the breast reaches 65°C and the thigh reaches 80°C.
 
 Allow the chicken to rest on the cutting board for 10 minutes.
 

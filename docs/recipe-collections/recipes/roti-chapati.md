@@ -62,7 +62,7 @@ Lightly dust each flattened roti and set aside.
 
 ### Step 3: Cook
 
-Place a cast iron over medium-high heat gas stove to preheat for a few minutes (450-475°F/232-246°C is the ideal surface temp).
+Place a cast iron over medium-high heat gas stove to preheat for a few minutes (232-246°C is the ideal surface temp).
 
 Flap a rolled roti in between your hands to dust off excess flour, then gently place into the hot pan.
 

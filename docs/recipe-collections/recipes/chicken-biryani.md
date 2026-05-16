@@ -66,7 +66,7 @@ Meanwhile, set a large pot of water on the stove and bring to a boil.
 
 ### Step 3: Par-boil the rice & soak the turmeric
 
-Preheat the oven to 300°F/148°C.
+Preheat the oven to 148°C.
 
 Add the rice to the boiling water and parboil the rice for 8-10 minutes, then drain in a colander.
 

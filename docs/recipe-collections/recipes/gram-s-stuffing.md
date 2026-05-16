@@ -41,11 +41,11 @@ The classic holiday side.
 
 Tear or chop the bread into bite-sized chunks.
 
-If your bread is fresh, you can do this in advance and leave it on the counter to dry out overnight or bake in a 225°/107°C oven for ~10 minutes to lightly dehydrate.
+If your bread is fresh, you can do this in advance and leave it on the counter to dry out overnight or bake in a 107°C oven for ~10 minutes to lightly dehydrate.
 
 If your bread is already stale, you can use it as is.
 
-Increase the temperature of the oven to 375°F/190C.
+Increase the temperature of the oven to 190°C.
 
 ### Step 2: Sauté the aromatic base
 
@@ -67,7 +67,7 @@ Add a few sheets of foil to a fresh baking tray. Grease the foil with baking spr
 
 Shape the stuffing into a tall loaf, then wrap it in the greased foil.
 
-Slide the tray into the preheated 375°F/190C oven. Bake for ~25 minutes, which will steam the stuffing and set it into it's loaf shape.
+Slide the tray into the preheated 190°C oven. Bake for ~25 minutes, which will steam the stuffing and set it into it's loaf shape.
 
 ### Step 5: Uncover & finish the stuffing
 

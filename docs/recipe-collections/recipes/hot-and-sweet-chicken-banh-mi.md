@@ -83,7 +83,7 @@ Store in the fridge for several weeks.
 
 Heat a cast iron or griddle over medium-high heat, then lay down the marinated chicken pieces in one even layer on the pan.
 
-Sear them until they are golden brown and crisp on one side (usually about 3-4 minutes). Flip and continue to sear until the other sides are browned and their internal temperature has reached at least 165°F/73°C.
+Sear them until they are golden brown and crisp on one side (usually about 3-4 minutes). Flip and continue to sear until the other sides are browned and their internal temperature has reached at least 73°C.
 
 Let the chicken rest for 5 minutes before slicing.
 

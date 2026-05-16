@@ -52,7 +52,7 @@ Heavily salt the exterior of the short ribs.
 
 Optionally let these dry brine for at least 3 hours or overnight in the fridge.
 
-When you are ready to move forward with braising, preheat the oven to 275°F/ 135°C.
+When you are ready to move forward with braising, preheat the oven to 135°C.
 
 ### Step 2: Sear the short ribs
 
@@ -78,9 +78,9 @@ Let simmer for 2 minutes longer to slightly reduce the wine.
 
 ### Step 5: Braise
 
-Return the browned ribs to the pot and add enough of the beef stock (or water) to the pot so it comes 3/4 of the way up the ribs. Bring the liquid to a simmer, cut off the heat, then partially cover with a lid and slide into the preheated 275°F/ 135°C oven.
+Return the browned ribs to the pot and add enough of the beef stock (or water) to the pot so it comes 3/4 of the way up the ribs. Bring the liquid to a simmer, cut off the heat, then partially cover with a lid and slide into the preheated 135°C oven.
 
-Let the ribs braise for roughly 4-5 hours, or enough time for the collagen in the meat to turn into gelatin (you'll know when they are fork tender). When ready, pull the pot out of the oven and let it cool until the liquid reaches 140°F/ 60°C and the ribs are cool enough to handle.
+Let the ribs braise for roughly 4-5 hours, or enough time for the collagen in the meat to turn into gelatin (you'll know when they are fork tender). When ready, pull the pot out of the oven and let it cool until the liquid reaches 60°C and the ribs are cool enough to handle.
 
 ### Step 6: Rest the ribs overnight
 

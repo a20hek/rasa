@@ -51,7 +51,7 @@ Tender & juicy meat.
 
 ### Step 1: Toast the chiles & blend them into the sauce
 
-Preheat oven to 300°F/148°C.
+Preheat oven to 148°C.
 
 Heat a cast iron over medium high heat.
 

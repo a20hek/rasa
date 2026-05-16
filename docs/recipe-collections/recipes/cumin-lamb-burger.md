@@ -72,7 +72,7 @@ After about 2 minutes, remove the cover and check the bottom of the bun — it s
 
 If there are any gray spots, the dough is still raw. The exterior should be browned and lightly crisp while steamy but cooked through on the inside.
 
-You can use a thermometer to be sure. The internal temp of the dough should be at around 200°F/95°C.
+You can use a thermometer to be sure. The internal temp of the dough should be at around 95°C.
 
 Repeat with remaining buns.
 

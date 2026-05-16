@@ -8,7 +8,7 @@ Gentling cooking food in a warm liquid, which is sometimes flavored.
 
 Poaching food is a cooking method that involves gently simmering food in a liquid, usually water or a flavorful broth, at a relatively low temperature.
 
-- The liquid is heated to just below the simmering point, typically around 160-180°F (71-82°C), creating small, gentle bubbles. This gentle cooking technique helps keep foods with a delicate texture intact during cooking.
+- The liquid is heated to just below the simmering point, typically around 71-82°C, creating small, gentle bubbles. This gentle cooking technique helps keep foods with a delicate texture intact during cooking.
 
 The liquid used for poaching can be enhanced with aromatics, herbs, spices, or wine to infuse flavors into the food.
 
@@ -16,7 +16,7 @@ The liquid used for poaching can be enhanced with aromatics, herbs, spices, or w
 
 > Heat Type: Conduction w/ water
 
-> Water Temperature: 160-180°F (71-82°C)
+> Water Temperature: 71-82°C
 
 > Food Reaction(s): [Coagulation](../reactions/coagulation.md)
 

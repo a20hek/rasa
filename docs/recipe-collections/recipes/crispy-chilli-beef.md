@@ -62,7 +62,7 @@ Some dry spots and some wet spots will form, which is exactly what you want — 
 
 ### Step 3: Fry the beef
 
-Fill a wok or pan with an inch or two of neutral oil. Heat over medium-high flame until the oil reaches 350°F/176°C.
+Fill a wok or pan with an inch or two of neutral oil. Heat over medium-high flame until the oil reaches 176°C.
 
 In batches, fry the pieces for 3-5 minutes or until crispy and cooked through.
 

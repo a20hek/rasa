@@ -8,7 +8,7 @@ Browning of sugar molecules that changes their flavors, color, and texture.
 
 Caramelization is a culinary and chemical process that occurs when sugars are heated to a certain temperature where they undergo a series of complex chemical reactions. These reactions result in the characteristic golden-brown color and rich flavor associated with caramelized foods.
 
-When exposed to relatively high heat, sugars begin to melt and darken in color. Pure sugar melts around 320°F/160°C and begins rapidly caramelizing around 338°F/170°C and upward. From here the color darkens, new flavors develop, and depending on final caramelized temperature and added ingredients, the mixture can crystalize into different textures.
+When exposed to relatively high heat, sugars begin to melt and darken in color. Pure sugar melts around 160°C and begins rapidly caramelizing around 170°C and upward. From here the color darkens, new flavors develop, and depending on final caramelized temperature and added ingredients, the mixture can crystalize into different textures.
 
 This same process happens in sugars found in fruits and vegetable ingredients, which can lead to lightly crispy or browned exteriors when cooked.
 

@@ -56,7 +56,7 @@ Bread the fish by first coating it in the flour mixture, then dipping it into th
 
 ### Step 3: Fry the fish
 
-Using a thermometer, verify the temp of the oil is around 350° F/176° C. Slowly drop the fish pieces into the oil to let them get nice and golden brown.
+Using a thermometer, verify the temp of the oil is around 176°C. Slowly drop the fish pieces into the oil to let them get nice and golden brown.
 
 Don’t overcrowd the oil. Fry in batches if necessary.
 

@@ -18,7 +18,7 @@ Why the cold water? Adding dry starch directly to a hot liquid results in immedi
 
 > Heat Type: Conduction
 
-> Temperature: 212°F/100°C
+> Temperature: 100°C
 
 > Food Reaction(s): [Gelation](../reactions/gelation.md)
 

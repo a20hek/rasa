@@ -55,7 +55,7 @@ Thin out the chicken breast to an even, flat size by butterflying it with a knif
 
 Preheat a pan or griddle over high heat. Once smoking, add enough oil to coat the cooking surface. Add the chicken to the pan, then allow to sear undisturbed for a few minutes to develop a deeply browned crust.
 
-Flip to sear the other side. Remove from the heat once the bottom has also developed a crust and the internal temperature of the breast reaches 155°F/68°C. Set aside.
+Flip to sear the other side. Remove from the heat once the bottom has also developed a crust and the internal temperature of the breast reaches 68°C. Set aside.
 
 ### Step 3: Prep the corn “elote” mix
 

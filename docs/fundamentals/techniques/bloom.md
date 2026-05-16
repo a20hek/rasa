@@ -19,7 +19,7 @@ In some cases, like saffron in a Paella, delicate spices or herbs can be "bloome
 
 > Heat Type: Conduction w/ fat
 
-> Pan Surface Temperature: 300°F/148°C+
+> Pan Surface Temperature: 148°C+
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md)
 

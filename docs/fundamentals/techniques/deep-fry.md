@@ -19,7 +19,7 @@ What about air frying?
 
 > Heat Type: Convection w/ fat
 
-> Oil Temperature: ~325-375°F/160-190°C
+> Oil Temperature: ~160-190°C
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Coagulation](../reactions/coagulation.md), [Dehydration](../reactions/dehydration.md)
 

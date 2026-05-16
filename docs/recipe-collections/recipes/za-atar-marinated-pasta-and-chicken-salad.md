@@ -52,7 +52,7 @@ Once thinned out, add a sprinkle of salt to both sides of each piece (optionally
 
 Add a drizzle of oil to a pan or griddle on high heat and sear the chicken pieces on each side until cooked through.
 
-Pull the chicken breast off the heat when the internal temp hits 155°F/68°C (so it doesn’t dry out). Let it rest before slicing up to maintain moisture, during which you can mix the sauce.
+Pull the chicken breast off the heat when the internal temp hits 68°C (so it doesn’t dry out). Let it rest before slicing up to maintain moisture, during which you can mix the sauce.
 
 ### Step 3: Mix the dressing
 

@@ -43,7 +43,7 @@ Perfect sandwich bread.
 
 ### Step 1: Activate the yeast
 
-Warm the milk in the microwave for ~30 seconds. Ideally, the milk should be around 100°F/38°C to help the yeast proof. Add the yeast and stir until dissolved. Let it stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
+Warm the milk in the microwave for ~30 seconds. Ideally, the milk should be around 38°C to help the yeast proof. Add the yeast and stir until dissolved. Let it stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
 
 Note: Proofing is done to test the viability of the yeast. If there is no foam surface or little bubbles the yeast is likely dead and should be discarded.
 
@@ -79,13 +79,13 @@ For the everything bagel seasoning, sprinkle a spoonful and knead into the dough
 
 Place the dough log seam side down in the greased loaf pan, cover the pan loosely with lightly greased plastic wrap, and let rise until the dough is domed about 1” above the edge of the loaf pan, about 60 minutes.
 
-20 minutes before the end of the rise, preheat the oven to 375°F/190°C.
+20 minutes before the end of the rise, preheat the oven to 190°C.
 
 ### Step 5: Bake, cool, & slice
 
 Bake the loaf for 30 to 35 minutes until nicely browned.
 
-When flicked the bread should sound hollow. Alternatively, check that the internal temperature reaches 190°F/87°C.
+When flicked the bread should sound hollow. Alternatively, check that the internal temperature reaches 87°C.
 
 Remove from the loaf pan set on a wire rack and let cool for at least 30 minutes before slicing. If you don’t let the bread fully cool, you’ll end up with a gummy interior.
 

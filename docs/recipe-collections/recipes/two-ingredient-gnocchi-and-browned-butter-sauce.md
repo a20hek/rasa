@@ -39,7 +39,7 @@ Pillowy & light potato pasta.
 
 ### Step 1: Roast & mash the potatoes
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 Pierce the potatoes all over with a fork and place them on a wire rack set over a baking sheet. Roast the potatoes in the oven until the insides are fork-tender, about 45-60 minutes, depending on their size.
 

@@ -38,7 +38,7 @@ The salt will draw the moisture from the egg. After 4-6 days, they should be fir
 
 ### Step 3: Dehyrdrate the yolks
 
-Preheat the oven to 180° F/ 82°C (or the lowest it will go). Brush the salt off each yolk, then rinse the yolks with water. Lightly dry each yolk with a paper towel.
+Preheat the oven to 82°C (or the lowest it will go). Brush the salt off each yolk, then rinse the yolks with water. Lightly dry each yolk with a paper towel.
 
 Set a wire rack on a baking sheet and spray it with vegetable oil. Place the yolks on the rack and let them dry out in the oven for 45 to 60 minutes (depending on the oven temperature). The yolks are done when they are opaque and the texture is like firm cheese. Let the yolks cool before using.
 

@@ -61,7 +61,7 @@ Move the chicken pieces to the flour mixture and coat them completely. Press the
 
 ### Step 3: Fry the chicken
 
-At the stove, use a thermometer to verify the oil temperature is 350°F/176°C.
+At the stove, use a thermometer to verify the oil temperature is 176°C.
 
 Slowly drop the chicken chunks into the oil to let them get nice and golden brown. Fry the chicken for about 4 minutes, slightly agitating them throughout.
 

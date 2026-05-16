@@ -63,7 +63,7 @@ Stir to combine & bring to a simmer.
 
 Top everything off with just enough water to barely submerge the pieces of meat. Stir, return to a light simmer, and partially cover.
 
-Braise for 1-2 hours until the lamb pieces are completely tender. (You can do this by leaving it cooking on the stovetop or in a 300°F/150°C oven.)
+Braise for 1-2 hours until the lamb pieces are completely tender. (You can do this by leaving it cooking on the stovetop or in a 150°C oven.)
 
 While this braises, cook some basmati rice or prep any other serving options like roti flatbreads.
 

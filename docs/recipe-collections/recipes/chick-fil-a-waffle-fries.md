@@ -54,7 +54,7 @@ Toss in the waffle-cut potatoes and boil until they are fully tender but not fal
 
 ### Step 3: Par-fry the fries, then freeze
 
-Add peanut oil to a wok or large pot, about 2 inches deep. Set the heat to medium and bring it to 375°F (190°C).
+Add peanut oil to a wok or large pot, about 2 inches deep. Set the heat to medium and bring it to 190°C.
 
 Set a paper-towel-lined baking sheet on the right. Once the oil is hot, drop a small batch of the potatoes in and fry for 60 seconds. Move them to the wire rack. Repeat this process until all the batches are done.
 
@@ -70,13 +70,13 @@ When you are ready to make fries, take a batch out of the freezer and choose one
 
 Deep fry version:
 
-Add the oil to a wok or dutch oven and heat to 375°F (190°C). Meanwhile, set up a wire rack over a baking sheet.
+Add the oil to a wok or dutch oven and heat to 190°C. Meanwhile, set up a wire rack over a baking sheet.
 
 Once the oil is hot, lower a batch of frozen fries into it. Fry until lightly golden brown and crisp, about 4 minutes. Move the fries to the wire rack over the baking sheet and serve immediately, or keep warm in an oven.
 
 Bake or air-fry version:
 
-Preheat the oven to 475°F (246°C) or 425°F (218°C) for a convection oven or air fryer.
+Preheat the oven to 246°C or 218°C for a convection oven or air fryer.
 
 Place the frozen fries on an aluminum pizza screen or baking sheet. Optionally, you can spritz them with oil. Bake for 12 to 15 minutes until crisp. Toss in a bowl with salt and serve with some sauces.
 

@@ -40,7 +40,7 @@ An easy weeknight meal and a great way to use up eggs.
 
 ### Step 1: Start the oven & aromatic base 
 
-Preheat the oven to around 400°F/205°C (Any high temp will work in this recipe, the oven is used to finish cooking the eggs through).
+Preheat the oven to around 205°C (Any high temp will work in this recipe, the oven is used to finish cooking the eggs through).
 
 In an oven-proof pan (like stainless steel or cast iron) saute the onion & bell pepper in the olive oil (enough to coat the pan) on medium heat until softened.
 

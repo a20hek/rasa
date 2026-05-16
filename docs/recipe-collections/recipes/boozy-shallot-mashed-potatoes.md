@@ -49,7 +49,7 @@ Perfect accouterment for turkey.
 
 ### Step 1: Roast the shallots
 
-Preheat the oven to 400°/204°C.
+Preheat the oven to 204°C.
 
 Place the unpeeled shallots with the butter, salt and pepper in a small cast iron or oven safe pan. Roast the shallots until they are soft and a knife easily slides through the interior (40-50 minutes).
 

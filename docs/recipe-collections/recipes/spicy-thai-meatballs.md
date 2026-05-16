@@ -39,7 +39,7 @@ Chop the basil, dice the shallot and bird’s eye chilis.
 
 ### Step 2: Mix the meatballs
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 In a large bowl, mix together the meatball components along with the aromatics. Mix until everything is evenly distributed.
 

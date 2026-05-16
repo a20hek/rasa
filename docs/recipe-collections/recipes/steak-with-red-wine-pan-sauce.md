@@ -51,7 +51,7 @@ Set a pan over medium-high heat and add a drizzle of oil, enough to coat the ent
 
 Once hot, add the steak and sear to the desired doneness, flipping as needed.
 
-I like medium or medium-rare, roughly 130-135°F/54-57°C internal at the thickest point.
+I like medium or medium-rare, roughly 54-57°C internal at the thickest point.
 
 Remove the steak from the heat and let rest for 5 minutes while you prepare the pan sauce.
 

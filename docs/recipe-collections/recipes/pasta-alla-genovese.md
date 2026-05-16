@@ -59,7 +59,7 @@ Bring the pot to a boil, then reduce the heat to low and partially cover, which 
 
 Allow the pot to braise over this low heat for 2-3 hours or until the beef is completely tender and shreds easily.
 
-Alternatively, you could pop the covered pot in a 300°F/150°C oven to braise without having to monitor a stove.
+Alternatively, you could pop the covered pot in a 150°C oven to braise without having to monitor a stove.
 
 When the meat is done, remove the bay leaves, and shred with tongs or a fork. It should mix in with the onions and remaining liquid (which should be slightly reduced and thickened).
 

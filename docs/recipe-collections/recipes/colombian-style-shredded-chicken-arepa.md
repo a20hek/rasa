@@ -45,7 +45,7 @@ Use a knife to butterfly or thin out the chicken breast into an even width. Spri
 
 Preheat a pan over medium high heat. Once hot, add a layer of oil to cover the pan. Lay the chicken into the hot pan to sear on one side.
 
-When the bottom has released from the pan and developed some browning, flip the chicken. Continue searing on the other side until it cooks through and reaches an internal temperature of 155°F/68°C.
+When the bottom has released from the pan and developed some browning, flip the chicken. Continue searing on the other side until it cooks through and reaches an internal temperature of 68°C.
 
 Set the chicken aside to rest.
 

@@ -22,7 +22,7 @@ How does it work?
 
 > Heat Type: Conduction w/ fat or water
 
-> Temperature: 180-212°F (82-100°C) for water blanching, 300°F/148°C for oil par-frying
+> Temperature: 82-100°C for water blanching, 148°C for oil par-frying
 
 > Food Reaction(s): [Coagulation](../reactions/coagulation.md), [Gelation](../reactions/gelation.md)
 

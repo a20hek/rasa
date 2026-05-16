@@ -93,7 +93,7 @@ Drain the noodles and cabbage and set aside into a large heatproof bowl for sauc
 
 ### Step 6: Sauce the noodles
 
-Heat the oil in a small pot or skillet until it is hot but not yet smoking (~375°F/190°C).
+Heat the oil in a small pot or skillet until it is hot but not yet smoking (~190°C).
 
 To the bowl of cooked noodles and blanched cabbage, pour the sauce over top. Then add all remaining aromatics and spices in a pile on top of the noodles.
 

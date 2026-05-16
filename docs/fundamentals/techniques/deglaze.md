@@ -18,7 +18,7 @@ How does it work? Water hits the pan and boils, and the high heat dissolves the 
 
 > Heat Type: Conduction
 
-> Water/Pan Temperature: At least 212°F/100°C
+> Water/Pan Temperature: At least 100°C
 
 > Food Reaction(s): [Caramelization](../reactions/caramelization.md), [Maillard](../reactions/maillard.md), [Dehydration](../reactions/dehydration.md)
 

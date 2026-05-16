@@ -15,7 +15,7 @@ Braising is cooking an ingredient in a liquid over a long period to tenderize te
 
 > Heat Type: Conduction w/ water
 
-> Water Temperature: 180-212°F/82-100°C
+> Water Temperature: 82-100°C
 
 > Food Reaction(s): [Coagulation](../reactions/coagulation.md)
 

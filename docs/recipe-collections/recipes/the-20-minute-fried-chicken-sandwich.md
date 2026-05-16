@@ -67,13 +67,13 @@ You want a craggy, thick layer that is sticking onto the meat.
 
 ### Step 4: Fry the chicken
 
-At the stove, use a thermometer to verify that the oil is at 375°F/190°C.
+At the stove, use a thermometer to verify that the oil is at 190°C.
 
 Slowly lay the chicken thighs into the oil and set a timer as they fry. After a few minutes, flip them to ensure even browning.
 
 Meanwhile, you can wash your milk bowl, the excess dredge, and wipe down your work surfaces. Always clean as you go.
 
-In total, the thighs should fry for around 8 minutes, but check their internal temperature with a thermometer to ensure they’ve reached at least 165°F/73°C.
+In total, the thighs should fry for around 8 minutes, but check their internal temperature with a thermometer to ensure they’ve reached at least 73°C.
 
 Move the fried thighs to a paper towel on a wire rack, dab off any excess oil, and sprinkle with salt immediately.
 

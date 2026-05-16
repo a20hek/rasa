@@ -71,7 +71,7 @@ Lastly, add the juice from 1/2 of a lime to start and a generous sprinkle of sal
 
 Add a little drizzle of oil to a ripping hot griddle, pan, or grill.
 
-Add the steak and cook, flipping occasionally, until well seared and charred on both sides, and the interior has reached at least 120°F/ 49°C (medium rare). Pull off the heat and let it rest.
+Add the steak and cook, flipping occasionally, until well seared and charred on both sides, and the interior has reached at least 49°C (medium rare). Pull off the heat and let it rest.
 
 Meanwhile, gather the rest of the tostada components. Slice the rested steak into thin slices, across the grain.
 

@@ -36,7 +36,7 @@ Spicy green salsa.
 
 ### Step 1: Roast the peppers & garlic
 
-Preheat your oven to 450°F/ 232°C.
+Preheat your oven to 232°C.
 
 Add the whole peppers and unpeeled garlic to a baking sheet. Roast the peppers in the oven for 20-25 minutes until partly blackened and the skin starts peeling.
 

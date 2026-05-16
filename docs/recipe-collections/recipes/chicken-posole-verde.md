@@ -50,7 +50,7 @@ One of my favorite soups.
 
 ### Step 1: Broil the vegetables & chop with aromatics
 
-Turn the oven on broil at 500° F/260° C.
+Turn the oven on broil at 260°C.
 
 Spread tomatillos, poblano and serrano peppers on a large tin foil rimmed baking sheet. Broil for 5 minutes until blackened and charred. Let cool 10 minutes.
 

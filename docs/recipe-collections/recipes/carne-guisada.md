@@ -58,7 +58,7 @@ Add the cumin, chili powder, bouillon, and flour and sauté for 2 more minutes o
 
 Add enough water to cover everything by a 1/2 inch.
 
-Bring to a simmer and partially cover with a lid. Add to a 300°F/148°C preheated oven and let it braise for 2-4 hours or until the meat pulls apart and the gravy has reduced and thickened.
+Bring to a simmer and partially cover with a lid. Add to a 148°C preheated oven and let it braise for 2-4 hours or until the meat pulls apart and the gravy has reduced and thickened.
 
 ### Step 4: Serve
 

@@ -58,7 +58,7 @@ Sprinkle the ground spices over top.
 
 Add the whole lemongrass, lime leaves, and coconut milk - enough to just cover the meat.
 
-Cover the Dutch oven and pop into a 300°F/148°C oven to braise for 3-5 hours or until the meat is completely fork tender.
+Cover the Dutch oven and pop into a 148°C oven to braise for 3-5 hours or until the meat is completely fork tender.
 
 Let it rest and cool out of the oven for at least an hour.
 

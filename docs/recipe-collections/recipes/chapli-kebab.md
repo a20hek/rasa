@@ -55,7 +55,7 @@ Form the meat into flat patties that resemble a burger — about 4”(10cm) and 
 
 ### Step 3: Shallow fry the patties
 
-In a cast iron pan or stainless skillet, melt enough beef tallow to create a thin layer of fat in the bottom of the pan. Heat the fat on medium until it reaches roughly 350°F/176°C or begins shimmering.
+In a cast iron pan or stainless skillet, melt enough beef tallow to create a thin layer of fat in the bottom of the pan. Heat the fat on medium until it reaches roughly 176°C or begins shimmering.
 
 Lay a couple of beef patties into the hot fat (away from you) and shallow fry until the bottom is well browned and crispy. Flip and shallow fry on the second side until the beef is cooked through. Remove from the oil and drain on a paper towel.
 

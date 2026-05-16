@@ -39,9 +39,9 @@ Japanese milk bread with a fluffy and soft interior.
 
 Add the water to a skillet and whisk in the 35 g of flour. Set the pan over medium-low heat and stir the mixture until the roux thickens to a gloppy, pudding-like consistency. Turn off the heat.
 
-Set aside and let cool until 120°F/48°C or less (so as to not kill the yeast when it’s added to the dough).
+Set aside and let cool until 48°C or less (so as to not kill the yeast when it’s added to the dough).
 
-Heat the milk for 45 seconds in the microwave (roughly around 105 degrees F). Stir in the yeast and set aside. Let stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
+Heat the milk for 45 seconds in the microwave (roughly around 40°C). Stir in the yeast and set aside. Let stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
 
 Note: Proofing is done to test the viability of the yeast. If there is no foam surface or little bubbles the yeast is likely dead and should be discarded.
 
@@ -75,7 +75,7 @@ Cover lightly with plastic wrap and let rise for another 45 to 60 minutes until 
 
 Note: If using the cover for a square loaf, place it over the top before the bread has crested the edge of the pan.
 
-Preheat the oven to 375°F/190°C with 15-20 minutes left of proofing.
+Preheat the oven to 190°C with 15-20 minutes left of proofing.
 
 ### Step 6: Bake
 
@@ -83,7 +83,7 @@ Note: If you are not using a cover on the bread pan, you’ll need to egg wash t
 
 Add the pan to the preheated oven and bake for 30 minutes.
 
-When finished, the exterior of the bread should be golden brown. Test the interior with a cake tester or a thermometer to see if the interior has reached 200°F/93°C.
+When finished, the exterior of the bread should be golden brown. Test the interior with a cake tester or a thermometer to see if the interior has reached 93°C.
 
 Slide the loaf onto a wire rack and let it cool completely (to avoid a gummy interior texture) before slicing and enjoying.
 

@@ -42,7 +42,7 @@ Transfer to a sauce pot and set over low heat.
 
 ### Step 2: Set the custard
 
-Stir constantly and slowly bring the mixture up to 175°F (79°C), checking frequently with a thermometer.
+Stir constantly and slowly bring the mixture up to 79°C, checking frequently with a thermometer.
 
 The mixture should lightly thicken by this point and coat a spoon. If not, hold at this temperature (don’t let it go much higher) and whisk for a few more minutes.
 

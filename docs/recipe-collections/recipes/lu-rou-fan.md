@@ -67,7 +67,7 @@ Add shaoxing wine, deglazing the bottom of the pan if there are any stuck browne
 
 ### Step 5: Braise until tender
 
-Partially cover and braise the pork until completely tender. You can do this on a low simmer on the stovetop, or move the pot into a 300°F/150°C oven for a more hands-off method.
+Partially cover and braise the pork until completely tender. You can do this on a low simmer on the stovetop, or move the pot into a 150°C oven for a more hands-off method.
 
 Depending on the cut of pork and how small you cut the pieces, it could take 1-3 hours until tender. Check periodically.
 

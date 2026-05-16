@@ -48,7 +48,7 @@ You can either butterfly each breast, slice them horizontally in half into thinn
 
 Sprinkle each breast with some salt.
 
-Then, grill or sear the butterflied (thinned out) chicken breasts in a hot pan until they reach 155°F internal temperature. Set aside to cool, then slice the chicken into long thin strips.
+Then, grill or sear the butterflied (thinned out) chicken breasts in a hot pan until they reach 68°C internal temperature. Set aside to cool, then slice the chicken into long thin strips.
 
 ### Step 2: Make the white sauce
 

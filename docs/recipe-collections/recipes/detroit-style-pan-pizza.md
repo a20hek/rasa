@@ -72,7 +72,7 @@ Cover the pan and let the dough proof for about 60-90 minutes, during which the 
 
 At the end of proofing, the dough should be slightly puffy. Spread the dough out to the edges of the pan with your fingers and pop any really large air bubbles that may leave a thin spot in the dough.
 
-During this time, make your sauce and prepare any toppings you want. Near the end of the proofing time, preheat your oven to 450°F/232°C.
+During this time, make your sauce and prepare any toppings you want. Near the end of the proofing time, preheat your oven to 232°C.
 
 ### Step 4: Make the sauce
 
@@ -98,7 +98,7 @@ Finish the pizza with a couple of spoonfuls of the sauce. I like doing it in 3 t
 
 ### Step 6: Bake
 
-To a 450°F/232°C preheated oven, add the pizza pan to the middle rack, uncovered. Bake until the top is starting to brown and the edges are crispy, which should take about 15-20 minutes.
+To a 232°C preheated oven, add the pizza pan to the middle rack, uncovered. Bake until the top is starting to brown and the edges are crispy, which should take about 15-20 minutes.
 
 Remove, let the pie cool slightly, then slice. Optionally garnish with additional toppings, then enjoy.
 

@@ -74,9 +74,9 @@ Simmer and reduce the curry sauce until thickened into a gravy like consistency.
 
 ### Step 5: Fry the chicken & toast the bun
 
-Once the oil has reached 350°F/176°C, gently lay in the breaded chicken away from you into the oil. Shallow fry for 2-3 minutes until the bottom side is golden brown, then flip.
+Once the oil has reached 176°C, gently lay in the breaded chicken away from you into the oil. Shallow fry for 2-3 minutes until the bottom side is golden brown, then flip.
 
-Continue shallow frying the chicken (flipping as needed to evenly brown each side) until cooked through to at least 155°F/70°C.
+Continue shallow frying the chicken (flipping as needed to evenly brown each side) until cooked through to at least 70°C.
 
 While that goes, toast or warm the bun.
 

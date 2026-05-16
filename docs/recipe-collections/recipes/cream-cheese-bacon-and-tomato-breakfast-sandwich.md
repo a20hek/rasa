@@ -32,7 +32,7 @@ A four ingredient breakfast sandwich.
 
 ### Step 1: Crisp the bacon
 
-Cook the bacon low and slow over a skillet or in a 350°F/176°C oven until the fat has rendered and the bacon is really crisp (check after 10 mins, flip if necessary).
+Cook the bacon low and slow over a skillet or in a 176°C oven until the fat has rendered and the bacon is really crisp (check after 10 mins, flip if necessary).
 
 For this recipe, thin cut bacon that gets crispy is important for the overall texture of the sandwich.
 

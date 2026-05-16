@@ -37,7 +37,7 @@ Perfect to throw on any dish.
 
 ### Step 1: Chop the peppers
 
-Preheat the oven to 425° F/218°C. Chop the peppers in half then remove the seeds and membrane.
+Preheat the oven to 218°C. Chop the peppers in half then remove the seeds and membrane.
 
 ### Step 2: Roast in the oven
 

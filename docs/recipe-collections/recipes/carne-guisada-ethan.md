@@ -50,7 +50,7 @@ A deeply flavored braise that’s a staple in Texas & Mexico.
 
 Add just enough oil to the coat the bottom of a heavy bottom pot or braising vessel (like a Dutch oven). Saute the onion & peppers until translucent and softened. Add the spices to bloom until fragrant. Remove the aromatic base from the pot and set aside.
 
-While this is going, preheat the oven to 300°F/150°C.
+While this is going, preheat the oven to 150°C.
 
 ### Step 2: Brown the beef
 
@@ -64,7 +64,7 @@ Return the sauteed aromatic base back to the pot. Add the diced tomatoes and the
 
 ### Step 4: Braise until tender
 
-Cover and slide into the preheated 300°F/150°C oven to braise.
+Cover and slide into the preheated 150°C oven to braise.
 
 After one hour of cooking, remove the lid to encourage browning and evaporation. Braise for 2-3 more hours or until the meat is completely tender and the cooking liquid has reduced.
 

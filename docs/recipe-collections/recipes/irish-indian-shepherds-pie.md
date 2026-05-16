@@ -106,7 +106,7 @@ Add the butter and milk to adjust the texture. Lastly, add half of the shredded 
 
 ### Step 6: Assemble & bake the pie
 
-Preheat the oven to 425°F/218°C.
+Preheat the oven to 218°C.
 
 Add the mashed potato topping to the top of the meat mixture in the cast iron pan.
 

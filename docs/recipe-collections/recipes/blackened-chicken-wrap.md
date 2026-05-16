@@ -52,13 +52,13 @@ Mix together all of the remaining spices in a small bowl. Now you are ready to b
 
 ### Step 2: Sear the chicken
 
-Set a frying pan over medium-high heat with a drizzle of oil. If you have a surface thermometer, the ideal pan temp is about 385°F/196°C when you drop in the chicken.
+Set a frying pan over medium-high heat with a drizzle of oil. If you have a surface thermometer, the ideal pan temp is about 196°C when you drop in the chicken.
 
 The goal is to blacken this spice mix onto the chicken into a crust. Sear until you are right on the edge of the crust being burnt, but it’s actually not. It should be very dark. Flip the chicken over, add a bit more oil to the pan, and sear the other side.
 
 Many recipes sear and then throw the whole pan in the oven, but if your breast was thinned out you should be able to cook it through in the pan without burning the seasoning.
 
-Pull the chicken breast off when it hits 155°F/68°C so it doesn’t dry out. Let it rest before slicing up to maintain moisture, during which you can mix the sauce.
+Pull the chicken breast off when it hits 68°C so it doesn’t dry out. Let it rest before slicing up to maintain moisture, during which you can mix the sauce.
 
 ### Step 3: Mix the sauce
 

@@ -48,7 +48,7 @@ After 20 minutes, knead the dough into a smooth dough ball and let rest covered 
 
 Sprinkle some of the keto flour on the bench and separate the dough into two equal balls which will make our personal pizzas. Roll the dough tightly into balls. Toss a towel over the top and let bench rest for another 45 to 60 minutes.
 
-During this time, preheat your oven to 500°F/ 260°C and get your toppings ready.
+During this time, preheat your oven to 260°C and get your toppings ready.
 
 To stretch each pizza, flip the dough over and using your hands, work it into a reasonably thin pizza. Somewhere around 10 inches in diameter. Place on a pan.
 

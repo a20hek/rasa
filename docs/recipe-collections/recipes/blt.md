@@ -36,7 +36,7 @@ My favorite summer sandwich.
 
 ### Step 1: Crisp the bacon
 
-Cook the bacon low and slow over a skillet or in a 400°F/204°C oven until the fat has rendered and the bacon is really crisp.
+Cook the bacon low and slow over a skillet or in a 204°C oven until the fat has rendered and the bacon is really crisp.
 
 ### Step 2: Prepare the tomatoes
 

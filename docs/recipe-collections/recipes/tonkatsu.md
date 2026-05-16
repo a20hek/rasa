@@ -62,7 +62,7 @@ Bread the pork cutlets by first coating the exterior in the flour/starch mixture
 
 ### Step 3: Fry and serve
 
-Using a thermometer, verify the temp of the oil is 350° F/ 176° C. Slowly drop the pork cutlets into the oil until golden brown. In total, fry the pork for about 7 to 9 minutes, slightly agitating them throughout.
+Using a thermometer, verify the temp of the oil is 176°C. Slowly drop the pork cutlets into the oil until golden brown. In total, fry the pork for about 7 to 9 minutes, slightly agitating them throughout.
 
 When browned to your liking, move to a paper towel on a wire rack, dab the excess oil, and move to the wire portion so it doesn't get soggy. Add a sprinkle of salt after frying.
 

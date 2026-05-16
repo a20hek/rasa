@@ -65,7 +65,7 @@ Return the browned beef chunks to the pot, followed by the bay leaf, a spoonful 
 
 ### Step 4: Braise until tender
 
-Partially cover the pot with a lid and braise for 4-6 hours until the meat is completely tender and the cooking liquid has reduced. You can do this on the stovetop or in a 300°F/150°C oven. If using the oven, optionally remove the lid completely during the last hour of cooking for extra browning.
+Partially cover the pot with a lid and braise for 4-6 hours until the meat is completely tender and the cooking liquid has reduced. You can do this on the stovetop or in a 150°C oven. If using the oven, optionally remove the lid completely during the last hour of cooking for extra browning.
 
 When finished, taste and adjust with more salt, vinegar, or sugar, if needed.
 

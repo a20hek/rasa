@@ -52,7 +52,7 @@ Set a skillet over medium-high heat. Add a drizzle of oil.
 
 Add the chicken to the hot skillet and let it sear undisturbed for 3-5 minutes until browning starts to develop.
 
-Flip the chicken over and let it sear on the other side until it reaches 165°F/74°C.
+Flip the chicken over and let it sear on the other side until it reaches 74°C.
 
 ### Step 3: Prep the sandwich bread & toppings
 

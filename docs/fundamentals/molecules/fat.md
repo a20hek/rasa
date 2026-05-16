@@ -8,7 +8,7 @@ Thermal cooking medium, enhances mouthfeel and flavor.
 
 Fat is an energy source in many ingredients and an effective conductor of high heat. This makes it a better thermal medium than water in various cooking techniques, such as frying or sauteing.
 
-Fat can transport heat at much higher temperatures to food before breaking down, unlike water which evaporates at 212°F.
+Fat can transport heat at much higher temperatures to food before breaking down, unlike water which evaporates at 100°C.
 
 - This is why you add oil to a pan instead of water before cooking.
 - Fat bridges the gap between a hot cooking surface and oddly shaped ingredients, and its viscous texture helps hold onto and transfer heat to the surfaces of those ingredients.

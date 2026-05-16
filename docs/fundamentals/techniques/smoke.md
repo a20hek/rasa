@@ -18,7 +18,7 @@ Note: The smoke ring is nitric oxide (NO) from the wood smoke reacting with the 
 
 > Heat Type: Convection
 
-> Air Temperature: 180-275°F/82-135°C
+> Air Temperature: 82-135°C
 
 > Food Reaction(s): [Coagulation](../reactions/coagulation.md), [Dehydration](../reactions/dehydration.md)
 

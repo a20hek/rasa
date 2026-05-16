@@ -75,7 +75,7 @@ Shape each baguette and place on a baking sheet-sized piece of parchment paper. 
 
 ### Step 4: Oven set up
 
-With 15 minutes of proofing left, preheat the oven to 450°F/232°C on the convection setting or 475°F/246°C on a standard setting.
+With 15 minutes of proofing left, preheat the oven to 232°C on the convection setting or 246°C on a standard setting.
 
 Fill a 13x9 inch baking pan halfway with water and place on the bottom rack of the oven. Place a metal baking sheet on the middle rack.
 

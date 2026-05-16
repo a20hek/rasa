@@ -47,7 +47,7 @@ Popeye’s even better at home.
 
 Add milk, sour cream, salt and hot sauce to a bowl and stir until combined. Add the chicken tenders and let them marinate while you prepare the dredge (or optionally for an hour or up to overnight).
 
-Add a neutral cooking oil to a deep pot or wok and heat to 350°F/175°C.
+Add a neutral cooking oil to a deep pot or wok and heat to 175°C.
 
 ### Step 2: Dredge the chicken
 
@@ -61,7 +61,7 @@ Take the tenders out of the marinade and put them into the breading. Make sure t
 
 When the oil is hot, you are ready to fry.
 
-Shake off excess dredge from each tender, then place the chicken into the oil and let it fry for 5-7 minutes while stirring or agitating the oil to promote even frying. Take the chicken out of the oil when they are golden brown or it reaches an internal temp of 160°F/71°C.
+Shake off excess dredge from each tender, then place the chicken into the oil and let it fry for 5-7 minutes while stirring or agitating the oil to promote even frying. Take the chicken out of the oil when they are golden brown or it reaches an internal temp of 71°C.
 
 Don’t overcrowd the frying oil. If needed, do this in two or three batches.
 

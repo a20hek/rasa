@@ -56,7 +56,7 @@ Add the water to a large bowl or container and add the bouillon, spices, and tom
 
 ### Step 3: Braise the beef
 
-Set the oven to 275°F/135°C.
+Set the oven to 135°C.
 
 Add the garlic to the pot with the roast and let it toast for a few minutes.
 

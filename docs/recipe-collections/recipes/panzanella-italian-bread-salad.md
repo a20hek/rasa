@@ -38,7 +38,7 @@ The best way to use leftover bread.
 
 ### Step 1: Prep the bread
 
-Preheat the oven to 350°F/176°C.
+Preheat the oven to 176°C.
 
 Slice the baguette into cubes and toss onto a baking sheet. Slide into the preheated oven and bake for 15 minutes.
 

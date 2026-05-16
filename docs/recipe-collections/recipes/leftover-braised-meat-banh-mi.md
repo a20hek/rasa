@@ -41,7 +41,7 @@ The perfect way to use up leftover braised meat.
 
 ### Step 1: Braise the meat
 
-Salt & season the meat and set the oven to 300°F/148°C.
+Salt & season the meat and set the oven to 148°C.
 
 Add a spoonful of oil to a dutch oven. Add the meat and sear it on all sides until a nice brown crust forms.
 

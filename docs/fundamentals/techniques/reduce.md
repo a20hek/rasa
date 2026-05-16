@@ -14,7 +14,7 @@ Reducing is evaporating excess water content via simmering to concentrate flavor
 
 > Heat Type: Conduction
 
-> Water/Pan Temperature: 180-212°F/82-100°C
+> Water/Pan Temperature: 82-100°C
 
 > Food Reaction(s): [Dehydration](../reactions/dehydration.md), [Caramelization](../reactions/caramelization.md), [Gelation](../reactions/gelation.md)
 

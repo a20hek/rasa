@@ -57,7 +57,7 @@ Add the egg, milk, and ricotta cheese to a large mixing bowl. Beat until creamy.
 
 ### Step 3: Roll out the dough
 
-Preheat the oven to 375°F/190°C.
+Preheat the oven to 190°C.
 
 Take the pie dough out of the freezer and cut 1/3 off for the top. Roll the 2/3 size piece into a large circle, roughly 1/8 inch thick (3 mm). Roll the 1/3 size piece to the same thickness.
 

@@ -63,7 +63,7 @@ For the slaw, thinly slice the cabbage and ginger. Add a sprinkle of salt and ma
 
 Cut the fish filet (s) into 4 even chunks, around the size of a sandwich bun. Mix the flour and salt in a bowl and set aside next to the pieces of fish.
 
-Set a wok or large pot over medium-high heat and add the oil. Enough for about 2 inches up the sides of the pan. Heat until the oil reaches 350°F/176°C.
+Set a wok or large pot over medium-high heat and add the oil. Enough for about 2 inches up the sides of the pan. Heat until the oil reaches 176°C.
 
 ### Step 3: Make the beer batter
 
@@ -71,9 +71,9 @@ Set a bowl over the scale and add the flour, cornstarch, baking powder, salt, an
 
 ### Step 4: Dip & fry the fish pieces
 
-Ensure the oil is right around 350 F (176 C) before battering the fish. Pick up a piece of the fish with tongs and dip both sides into the flour and salt mixture. Transfer to the batter to coat, lift it out to allow excess batter to drip off, and then immediately move to the hot oil.
+Ensure the oil is right around 176°C before battering the fish. Pick up a piece of the fish with tongs and dip both sides into the flour and salt mixture. Transfer to the batter to coat, lift it out to allow excess batter to drip off, and then immediately move to the hot oil.
 
-Fry the fish until it is golden brown and crisp and reaches an internal temperature of 140°F/60°C. Transfer to a wire rack over a baking sheet and dab off the excess oil with a paper towel, and sprinkle immediately with salt.
+Fry the fish until it is golden brown and crisp and reaches an internal temperature of 60°C. Transfer to a wire rack over a baking sheet and dab off the excess oil with a paper towel, and sprinkle immediately with salt.
 
 Repeat this process with the remaining pieces of fish. Only fry a couple of pieces at a time to not overwhelm the frying oil.
 

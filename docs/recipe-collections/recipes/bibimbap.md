@@ -85,7 +85,7 @@ Repeat this stir-frying process with the mushrooms & garlic. Set aside.
 
 ### Step 5: Finish the beef & eggs, then serve.
 
-Add the marinated beef and stir fry until cooked through and reaches 160 °F/ 71 °C. Set aside to rest while you make the eggs for serving.
+Add the marinated beef and stir fry until cooked through and reaches 71°C. Set aside to rest while you make the eggs for serving.
 
 Fry however many eggs you want (1 per bowl/serving is standard). This recipe makes around 4 rice bowls.
 

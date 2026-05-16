@@ -20,7 +20,7 @@ Color change science: raw vegetables' dull color is due to the layer of gas betw
 
 > Heat Type: Water Conduction
 
-> Water/Pan Temperature: 212°F/100°C, then 32°F/0°C
+> Water/Pan Temperature: 100°C, then 0°C
 
 > Food Reaction(s): [Gelation](../reactions/gelation.md), [Coagulation](../reactions/coagulation.md)
 

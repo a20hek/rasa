@@ -8,7 +8,7 @@ The changing of protein structures with heat, salt, or acid.
 
 Coagulation is what happens to proteins as they become fully cooked. When you expose protein-rich foods to salt, acid, or heat, they drastically change their structure, like raw vs. cooked chicken.
 
-Protein molecules, amino acids, are shaped like coiled or folded strands. These easily unravel, or denature, when exposed to salt, acid, or light heat starting at around 140-180°F/60-80°C. As cooking processes expose these denatured proteins to higher temperatures, the uncoiled strands begin to link up with one another, resulting in coagulation, or the final cooked protein stage.
+Protein molecules, amino acids, are shaped like coiled or folded strands. These easily unravel, or denature, when exposed to salt, acid, or light heat starting at around 60-80°C. As cooking processes expose these denatured proteins to higher temperatures, the uncoiled strands begin to link up with one another, resulting in coagulation, or the final cooked protein stage.
 
 - Scrambled eggs go from raw and gloopy to thin and watery over low heat, then solid as they cook and set: their protein strands denature and then coagulate together to form curds.
 - This process can be taken too far, such as overcooking a steak, where coagulated proteins become so tightly bound that they push out internal water content, leading to dry, rubbery, or chewy texture.

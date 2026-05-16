@@ -48,7 +48,7 @@ A black bean burger that actually tastes good.
 
 Drain your cooked (or canned) beans completely in a strainer, and rinse them clean. You’ll need around 250 g (1/4 lb) of drained beans, which should be about how much is inside a standard 14 oz / 400 g can.
 
-Spread the drained beans on a sheet tray, and pop them into a preheated 350°F/176°C oven for 10-15 minutes to dehydrate them.
+Spread the drained beans on a sheet tray, and pop them into a preheated 176°C oven for 10-15 minutes to dehydrate them.
 
 You need to reduce moisture to improve the texture of the patty. If you don’t want to use the oven, you can toast them in a pan until they’ve dried out some and their skin starts peeling.
 

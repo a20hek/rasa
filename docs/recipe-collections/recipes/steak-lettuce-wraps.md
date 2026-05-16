@@ -45,7 +45,7 @@ Once the pan is hot, add a drizzle of oil to coat the cooking surface.
 
 Add the steak to the pan and let it sear for several minutes, allowing a nice brown crust to develop. Then flip the steak over and let it sear on the other side.
 
-Remove when cooked to your desired temperature. For medium well, pull the steak when the middle reaches 135°F/57°C
+Remove when cooked to your desired temperature. For medium well, pull the steak when the middle reaches 57°C
 
 ### Step 2: Make the vinaigrette
 

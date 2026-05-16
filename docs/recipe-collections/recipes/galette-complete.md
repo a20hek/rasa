@@ -47,7 +47,7 @@ While you can use this batter right away, it’s best if you allow the mixture t
 
 ### Step 2: Par-cook the galettes
 
-When you're ready to cook, place your largest nonstick skillet or carbon steel pan over medium heat and add some oil. Once it's hot (375-400° F/204° C), pour approximately 70 grams of batter onto the bottom quarter of the pan.
+When you're ready to cook, place your largest nonstick skillet or carbon steel pan over medium heat and add some oil. Once it's hot (190-204°C), pour approximately 70 grams of batter onto the bottom quarter of the pan.
 
 If you have a wooden crepe stick, use it to quickly spread out the batter as thinly as possible. If you don't, thin out the batter with some water and use gravity to swirl it to the edges of the pan. Allow it to cook on one side until it's lightly browned and lifts easily from the pan.
 

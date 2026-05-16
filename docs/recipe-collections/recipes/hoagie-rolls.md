@@ -39,7 +39,7 @@ These make some of the best sandwiches possible.
 
 ### Step 1: Mix the dough
 
-Warm the milk in the microwave for about 50 seconds. Ideally, the temperature should be between 105-110°F/40-43°C to optimize yeast activity. Add the yeast and diastatic malt powder to the warm milk and stir to combine.
+Warm the milk in the microwave for about 50 seconds. Ideally, the temperature should be between 40-43°C to optimize yeast activity. Add the yeast and diastatic malt powder to the warm milk and stir to combine.
 
 Let stand for 3-5 minutes until light foam surfaces and bubbles are visible.
 
@@ -85,7 +85,7 @@ Cover lightly with plastic wrap or a towel and let the rolls proof until about 1
 
 ### Step 5: Oven set up 
 
-With 15 minutes of proofing left, preheat the oven to 375°F/190°C.
+With 15 minutes of proofing left, preheat the oven to 190°C.
 
 Place an oven-safe pan or another baking sheet on the bottom rack of the oven. In the next step, ice will be dropped on the hot pan to help create a steamy environment for a better oven spring.
 
@@ -101,7 +101,7 @@ Note: At this point, you can sprinkle on toppings like sesame seeds, or herbs an
 
 Place the rolls into the oven on the middle rack and toss in 4 to 5 ice cubes on the hot pan on the preheated pan which will create steam.
 
-Bake for 10 minutes then rotate the pan. Continue baking for another 8-10 minutes until the crust is golden brown and the internal temperature reaches 200°F/93°C (use a thermometer).
+Bake for 10 minutes then rotate the pan. Continue baking for another 8-10 minutes until the crust is golden brown and the internal temperature reaches 93°C (use a thermometer).
 
 Let cool completely on a wire rack. I like to store these in a plastic bag for 1 day before making a sandwich since I find their texture gets better overnight in a sealed bag.
 

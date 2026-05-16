@@ -50,11 +50,11 @@ Place a bowl on a scale and combine all the chimichurri ingredients. Mix them to
 
 ### Step 3: Sear the steak
 
-First, preheat a pan on high heat on the stove, aiming for at least 400° F/204° C. Then, add a drizzle of oil to the pan. Place the steak in the pan, pressing it down to ensure good contact during searing.
+First, preheat a pan on high heat on the stove, aiming for at least 204°C. Then, add a drizzle of oil to the pan. Place the steak in the pan, pressing it down to ensure good contact during searing.
 
 Turn the steak as needed until a nice brown crust forms on the outside, checking the internal temperature intermittently with a thermometer.
 
-Once the internal temperature reaches 130° F/54° C, remove the pan from the heat. Allow the steak to rest for at least 6-8 minutes before slicing it into thin strips for the sandwiches.
+Once the internal temperature reaches 54°C, remove the pan from the heat. Allow the steak to rest for at least 6-8 minutes before slicing it into thin strips for the sandwiches.
 
 ### Step 4: Toast the buns & assemble
 

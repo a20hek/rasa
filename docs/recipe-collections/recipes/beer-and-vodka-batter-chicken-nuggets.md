@@ -69,13 +69,13 @@ Be careful not to over-mix; it's okay if there are a few small lumps of flour.
 
 Set up the fry station. On the left, place the floured chicken nuggets and the bowl of batter. In the middle, have the wok with hot oil. On the right, set up a wire rack over a baking sheet with a paper towel on half.
 
-Once the oil is at 350°F/ 176°C, you are ready to fry.
+Once the oil is at 176°C, you are ready to fry.
 
 ### Step 4: Coat the nuggets & fry
 
 Transfer the flour chicken nuggets to the batter, turning them to coat. Pick up a nugget and allow the excess batter to drip off. Gently lower the nugget into the oil to reduce splashing.
 
-Work in small batches of 5 or 6, repeat until all chicken nuggets are in the oil. Fry until the chicken nuggets are golden brown and crispy on all sides, about 4-5 minutes. Check that the internal temperature is at least 160°F/71°C.
+Work in small batches of 5 or 6, repeat until all chicken nuggets are in the oil. Fry until the chicken nuggets are golden brown and crispy on all sides, about 4-5 minutes. Check that the internal temperature is at least 71°C.
 
 Transfer the fried nuggets to the paper towel and immediately give them a sprinkle of salt. Dab the excess oil on both sides and move the nuggets off the paper towel.
 

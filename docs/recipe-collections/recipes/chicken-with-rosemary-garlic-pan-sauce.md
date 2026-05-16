@@ -48,7 +48,7 @@ Set a pan over medium-high heat and add a drizzle of oil, enough to coat the ent
 
 Press the chicken breast into the hot pan to sear. Sear for 1-2 minutes until the breast has developed deep browning on one side. Flip the chicken and repeat on the other side.
 
-Once browned on both sides, turn the heat down to medium-low. Cook until the internal temperature reads 155°F/68°C at the thickest point. Set aside to rest while preparing the pan sauce.
+Once browned on both sides, turn the heat down to medium-low. Cook until the internal temperature reads 68°C at the thickest point. Set aside to rest while preparing the pan sauce.
 
 ### Step 3: Make the pan sauce
 

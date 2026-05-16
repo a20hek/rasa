@@ -15,7 +15,7 @@ Searing is the act of cooking an ingredient in a pan over very high heat to trig
 
 > Heat Type: Conduction w/ fat
 
-> Pan Surface Temperature: 400°F/205°C+
+> Pan Surface Temperature: 205°C+
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Dehydration](../reactions/dehydration.md), [Coagulation](../reactions/coagulation.md)
 

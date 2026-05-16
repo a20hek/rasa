@@ -49,13 +49,13 @@ Place the pork on a baking sheet and sprinkle the salt over all sides of the por
 
 ### Step 2: Season & roast the pork
 
-Preheat the oven to 400° F/205° C.
+Preheat the oven to 205°C.
 
 Add 10 cloves of garlic to a mortar and pestle with a sprinkle of salt and bash into a paste. Add the pepper, oregano, rosemary, and the olive oil and mix together.
 
 Pull the pork out of the fridge and dab any moisture with a paper towel. Rub the herb mixture on the exterior of the pork.
 
-Toss it into the oven and roast until the internal temp hits 145° F/ 63° C.
+Toss it into the oven and roast until the internal temp hits 63°C.
 
 Depending on the size of your pork this could take anywhere from around 45 mins to 2 hours.
 

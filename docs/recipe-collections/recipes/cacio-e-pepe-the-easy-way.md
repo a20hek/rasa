@@ -40,7 +40,7 @@ A perfectly creamy and peppery pasta.
 
 Add the cornstarch and water to a small saucepan. Mix the two together until the cornstarch is dissolved and no clumps remain.
 
-Add the saucepan to the stove. Turn the heat to low and whisk until it is brought to just below a simmer (180°F/ 82°C).
+Add the saucepan to the stove. Turn the heat to low and whisk until it is brought to just below a simmer (82°C).
 
 The starch mixture should begin to thicken. Stir to ensure there are no clumps and then turn off the heat. Set aside.
 

@@ -56,7 +56,7 @@ Simmer for 20 minutes or until chicken is cooked through and tender.
 
 ### Step 3: Fry the tortilla strips
 
-In your frying vessel of choice, bring 1-2 inches of frying oil to 375°F/190°C.
+In your frying vessel of choice, bring 1-2 inches of frying oil to 190°C.
 
 In batches, add in tortilla strips to fry. Lightly agitate (to prevent sticking/burning) until most of the spattering has subsided (indicating the moisture has been fried off and the strips will be crispy).
 

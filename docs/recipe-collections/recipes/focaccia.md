@@ -64,7 +64,7 @@ Note: If the dough is springing back from the edges, cover and let rest for 15-2
 
 Cover the pan and let the focaccia proof for 45-60 minutes. At the end of proofing, the dough should be well-risen and puffy with gas bubbles.
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 ### Step 4: Dimple & add toppings
 

@@ -62,7 +62,7 @@ Slice or butterfly your chicken breast into a thin, even piece for quicker cooki
 
 Heat a stainless steel pan over medium-high, then add a drizzle of oil to coat the pan. Lay down the chicken to sear undisturbed for a few minutes.
 
-When the chicken is taking on some color and releases from the pan, flip to finish cooking through. You can verify with a thermometer and pull it at 155°F/68°C internal.
+When the chicken is taking on some color and releases from the pan, flip to finish cooking through. You can verify with a thermometer and pull it at 68°C internal.
 
 Allow the cooked chicken to rest off heat while you gather the rest of the pita components.
 

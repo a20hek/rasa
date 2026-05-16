@@ -8,13 +8,13 @@ Cooking food in an oven with medium temperatures.
 
 Baking is the act of using hot air to cook something evenly from all sides and evaporate excess moisture, which usually happens in an oven.
 
-- Most baking recipes call for 350F because that is the temperature the [Maillard Reaction](../reactions/maillard.md) happens, which yields a golden brown exterior on foods.
+- Most baking recipes call for 176°C because that is the temperature the [Maillard Reaction](../reactions/maillard.md) happens, which yields a golden brown exterior on foods.
 
 > Kitchen Tool: Oven
 
 > Heat Type: Convection w/ air
 
-> Temperature: ~350°F/176 C
+> Temperature: ~176°C
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Gelation](../reactions/gelation.md), [Coagulation](../reactions/coagulation.md), [Dehydration](../reactions/dehydration.md)
 

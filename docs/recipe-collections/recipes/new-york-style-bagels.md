@@ -90,7 +90,7 @@ Make the everything seasoning: Combine all spices in a container. Set aside.
 
 With 15 minutes left to proof, fill a large wok, pan, or pot with 2 liters of water). Set on high heat and bring to a boil.
 
-Additionally, preheat the oven to 475°F/246°C on the convection setting (500°F/260°C for no convection).
+Additionally, preheat the oven to 246°C on the convection setting (260°C for no convection).
 
 ### Step 6: Boil
 

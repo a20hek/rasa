@@ -8,7 +8,7 @@ Browning that occurs rapidly at high heat and develops complex flavors.
 
 The Maillard Reaction is a complex chemical process that occurs when amino acids, building blocks of proteins, and sugars react under heat, leading to browning and development of flavors in various foods.
 
-- Because the Maillard Reaction happens rapidly at temperatures north of 350°F/176°C, it occurs most often in hot and fast cooking techniques, like [Sear](../techniques/sear.md) or [Broil](../techniques/broil.md), where moisture can quickly evaporate.
+- Because the Maillard Reaction happens rapidly at temperatures north of 176°C, it occurs most often in hot and fast cooking techniques, like [Sear](../techniques/sear.md) or [Broil](../techniques/broil.md), where moisture can quickly evaporate.
 - Water based techniques like [Boil](../techniques/boil.md) or [Steam](../techniques/steam.md) cannot brown foods because their lower temperature environments prevent the Maillard Reaction.
 
 The Maillard Reaction is distinct from [Caramelization](./caramelization.md), which can occur without proteins. Often both processes happen simultaneously, such as in baked goods where sugars and gluten proteins are present.

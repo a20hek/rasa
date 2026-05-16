@@ -56,9 +56,9 @@ Set a cast-iron skillet over medium-low heat.
 
 Add enough oil for shallow frying, about a quarter of an inch. Add a pinch of bread crumbs to test the heat, they should lightly sizzle and become browned, not burnt!
 
-Place the breaded chops in the pan and slowly shallow fry until they are golden brown and the internal temperature reaches 145 - 150°F/62-65°C. Go low and slow! I like to flip the pork chops multiple times during this process.
+Place the breaded chops in the pan and slowly shallow fry until they are golden brown and the internal temperature reaches 62-65°C. Go low and slow! I like to flip the pork chops multiple times during this process.
 
-Note: Alternatively, you can slide the pan into a 350°F/176°C oven after browning on both sides to finish cooking.
+Note: Alternatively, you can slide the pan into a 176°C oven after browning on both sides to finish cooking.
 
 ### Step 4: Make the horseradish sauce
 

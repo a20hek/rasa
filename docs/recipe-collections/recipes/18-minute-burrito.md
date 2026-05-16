@@ -54,7 +54,7 @@ Set a cast-iron pan over medium to preheat.
 
 Meanwhile, mix the mayo and spices into a bowl. Add the chicken and slather the marinade on the exterior, making sure the thighs are well coated.
 
-Add the chicken to the pan and sear on each side until well browned. Cook the thighs until their internal temp is at least 176°F/80°C. Remove from the pan, slice into thin strips, and set aside.
+Add the chicken to the pan and sear on each side until well browned. Cook the thighs until their internal temp is at least 80°C. Remove from the pan, slice into thin strips, and set aside.
 
 ### Step 2: Bloom aromatics & saute the beans
 

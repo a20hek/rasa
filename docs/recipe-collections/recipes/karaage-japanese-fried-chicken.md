@@ -66,13 +66,13 @@ Set up the fry station with the coated chicken on one side of the stove, and a w
 
 ### Step 3: Preheat the frying oil & make the sauce
 
-When ready to fry, place a wok or Dutch oven over medium heat and add enough peanut oil to go about 2 inches up the side of the pan. Using a thermometer, bring the oil to 350°F/176°C.
+When ready to fry, place a wok or Dutch oven over medium heat and add enough peanut oil to go about 2 inches up the side of the pan. Using a thermometer, bring the oil to 176°C.
 
 While that heats up, make the sauce. Slice the scallions and grate the ginger into a bowl. Set the bowl over a scale and add all remaining sauce ingredients (the kewpie mayo and the lemon wedges are not for the sauce, those are for serving).
 
 ### Step 4: First fry
 
-Once the oil is at 350 F, working in batches, gently lower the chicken pieces into the hot oil for the first fry.
+Once the oil is at 176°C, working in batches, gently lower the chicken pieces into the hot oil for the first fry.
 
 Keep the chicken moving with a slotted spoon or straining and fry until just lightly golden brown, about 2-3 minutes. It will not be fully cooked but set the chicken on the wire rack to let drain and rest.
 

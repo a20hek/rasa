@@ -63,13 +63,13 @@ The dough can keep in the fridge for several days.
 
 When you are almost ready to bake, take the cookies out of the fridge.
 
-Preheat the oven to 350°F/176°C.
+Preheat the oven to 176°C.
 
 Sift the powdered confectioner's sugar into a bowl or baking dish, and set to the side.
 
 Using a scoop, portion the dough into 20-gram pieces, which will make about 4 dozen cookies. Feel free to make them larger 40-gram cookies instead, which will yield 2 dozen.
 
-Note: In my tests, I found the ideal temperature of the dough for rolling is 50°F/10°C. If it is too cold, leave it on the counter for a bit before rolling.
+Note: In my tests, I found the ideal temperature of the dough for rolling is 10°C. If it is too cold, leave it on the counter for a bit before rolling.
 
 Roll the dough into 1-inch balls, then toss each in the sifted confectioner's sugar until fully coated (no bare spots).
 
@@ -77,11 +77,11 @@ Place the rolled, dusted cookies on parchment-lined cookie sheets.
 
 ### Step 5: Bake
 
-Slide the cookies into the 350°F/176°C oven and bake for 10 minutes.
+Slide the cookies into the 176°C oven and bake for 10 minutes.
 
 The tops of cookies will crack or crinkle as they flatten.
 
-After 10 minutes, check the temperature of a cookie with a thermometer, which should be between 175-185°F/79-87°C. They might need a few extra minutes to get there. When the cookies have reached this internal temperature, pull them out of the oven.
+After 10 minutes, check the temperature of a cookie with a thermometer, which should be between 79-87°C. They might need a few extra minutes to get there. When the cookies have reached this internal temperature, pull them out of the oven.
 
 They will be soft and gooey at this stage. Let them cool completely on the baking sheet so they firm up.
 

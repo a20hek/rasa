@@ -8,7 +8,7 @@ Evaporating water content from an ingredient with heat and/or air circulation.
 
 Dehydration is the process of evaporating water content from an ingredient with heat and/or air circulation to manipulate the flavor, texture, or appeal of a food.
 
-- Because water generally evaporates at 212°F/100°C, dehydration happens rapidly with cooking techniques that favor higher temperatures, such as [Sear](../techniques/sear.md) or [Deep Fry](../techniques/deep-fry.md), which can render a dehydrated and thus crisp surface texture.
+- Because water generally evaporates at 100°C, dehydration happens rapidly with cooking techniques that favor higher temperatures, such as [Sear](../techniques/sear.md) or [Deep Fry](../techniques/deep-fry.md), which can render a dehydrated and thus crisp surface texture.
 - In other cases, dehydration can happen through convection, or the circulation of air through a space, which can wick away surface moisture and dry out an ingredient over time.
 
 Salt, or [Brine](../techniques/brine.md), can help with dehydration since it draws out moisture to the surface of ingredients through osmosis. As salt moves inward, it pushes water outward, which can be removed more easily with air or evaporative heat.

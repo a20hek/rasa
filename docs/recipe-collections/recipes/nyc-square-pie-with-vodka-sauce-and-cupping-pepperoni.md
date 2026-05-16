@@ -72,7 +72,7 @@ Get out a square metal pizza pan (although a baking sheet will work). Add a driz
 
 Toss the dough in and stretch to the edges. If it springs back before reaching the edges of the pan, it will need to rest for a final 10-20 minutes so you can fully stretch it to the corners.
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 Finally, prep the toppings. Grate the cheeses and cut the pepperoni into 36 ~1/8” (3-5mm) slices.
 
@@ -86,7 +86,7 @@ To assemble, stretch the relaxed dough to the edges of the pan, add a layer of s
 
 ### Step 7: Bake
 
-Slide the pan into the middle rack of the preheated 450°F/232°C oven and bake for about 20 minutes or until the crust is golden brown & crispy, and the cheese is bubbly.
+Slide the pan into the middle rack of the preheated 232°C oven and bake for about 20 minutes or until the crust is golden brown & crispy, and the cheese is bubbly.
 
 Slide the cooked pizza onto a cooling rack to rest for 5 minutes before slicing and enjoying.
 

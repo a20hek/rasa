@@ -106,7 +106,7 @@ Taste it! Adjust salt or any spice/herb additions as you see fit.
 
 ### Step 6: Cook the chicken
 
-When ready to cook, place a pan over medium-high heat. Once hot, sear the chicken thighs on both sides until the internal temp reaches at least 165 F.
+When ready to cook, place a pan over medium-high heat. Once hot, sear the chicken thighs on both sides until the internal temp reaches at least 73°C.
 
 Chop the chicken into pieces in the pan or let them rest, then slice.
 

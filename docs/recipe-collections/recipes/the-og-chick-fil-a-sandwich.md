@@ -52,7 +52,7 @@ To a bowl, add milk, egg, and pickle juice and whisk together. Toss in the chick
 
 This could be brined overnight if you would like.
 
-Fill a pot or wok with two inches of neutral oil and place over medium heat. Slowly bring to 350°F/176°C for frying.
+Fill a pot or wok with two inches of neutral oil and place over medium heat. Slowly bring to 176°C for frying.
 
 ### Step 2: Make the dredge
 
@@ -62,11 +62,11 @@ Take the breasts out of the brine and add to the breading. Make sure to coat the
 
 ### Step 3: Fry the chicken & serve
 
-Verify the oil has reached 350°F/176°C, then gently place each breaded chicken piece into the oil to fry for 6 to 8 minutes until golden brown and delicious.
+Verify the oil has reached 176°C, then gently place each breaded chicken piece into the oil to fry for 6 to 8 minutes until golden brown and delicious.
 
 Move the chicken pieces around in the oil as they fry so the oil doesn't have any cold spots and the chicken cooks evenly.
 
-Take the chicken out of the oil when it reaches an internal temp of 155°F/68°C.
+Take the chicken out of the oil when it reaches an internal temp of 68°C.
 
 Add a sprinkle of salt to the pieces as soon as they come out of the hot oil.
 

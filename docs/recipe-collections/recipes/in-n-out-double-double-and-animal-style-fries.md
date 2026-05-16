@@ -56,7 +56,7 @@ Freezing these ahead of time will lead to crispier end product, since the gelati
 
 ### Step 2: Roast the fries
 
-Preheat the oven to 450°F/232°C.
+Preheat the oven to 232°C.
 
 Add a half spoonful (~7g) of oil to a sheet pan then toss it in the preheating oven. Once the oven & pan is hot, bring it back out and add the fries to the hot pan.
 

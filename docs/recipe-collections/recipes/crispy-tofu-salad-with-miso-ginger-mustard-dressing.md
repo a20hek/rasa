@@ -52,7 +52,7 @@ Meanwhile, add all miso dressing ingredients to a container or squirt bottle and
 
 Preheat an oven broiler on the high setting. Use a paper towel to dry off the exterior of the tofu pieces.  Add them to a lightly oiled sheet pan, and spritz or toss with a bit more oil to just barely coat. Broil for 5-7 minutes, flip, and broil for another 5-7 minutes until well colored and crispy.
 
-Alternatively, use an air fryer at 450°F/232°C and go for 10-15 minutes or until crispy.
+Alternatively, use an air fryer at 232°C and go for 10-15 minutes or until crispy.
 
 ### Step 4: Assemble & serve
 

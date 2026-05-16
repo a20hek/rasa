@@ -40,13 +40,13 @@ Set skin side up on a wire rack, and let dry brine uncovered in the refrigerator
 
 Add the pork belly to a similarly sized baking pan. Optionally wrap the sides (not the top skin) in foil, to keep the meat from drying out.
 
-Roast for 2-3 hours at 275°F/135°C or until the meat is completely tender, and remove from the oven.
+Roast for 2-3 hours at 135°C or until the meat is completely tender, and remove from the oven.
 
 - The meat is essentially just braising at this point.
 
 ### Step 3: Crisp the skin
 
-Turn the oven up to 465°F/240°C.
+Turn the oven up to 240°C.
 
 Dry off the skin, and optionally brush or pour over any rendered fat onto the skin, which will help the skin almost fry during this step. Roast in the oven for 20-35 minutes until the skin puffs and crisps up.
 

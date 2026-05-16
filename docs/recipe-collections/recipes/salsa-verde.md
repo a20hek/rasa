@@ -34,7 +34,7 @@ Bright & sour table salsa.
 
 ### Step 1: Roast the vegetables
 
-Preheat the oven to 450 F°/232 C°. Add the tomatillos, serranos, onion, and garlic clove to a baking sheet. Place in the preheated oven and roast until the vegetables are softened charred in spots.
+Preheat the oven to 232°C. Add the tomatillos, serranos, onion, and garlic clove to a baking sheet. Place in the preheated oven and roast until the vegetables are softened charred in spots.
 
 ### Step 2: Blend the roasted vegetables
 

@@ -54,7 +54,7 @@ Add the hot sauce, mayo, and hot honey to a jar or container that seals. Close i
 
 Check back on the chicken breasts. Once one side has developed a nice sear and some color, flip the breast over.
 
-Continue searing until their temperature reaches 155°F/68°C. Thinned-out chicken breasts should take around 5-7 minutes to reach this temp.
+Continue searing until their temperature reaches 68°C. Thinned-out chicken breasts should take around 5-7 minutes to reach this temp.
 
 Prep or gather any remaining toppings for the sandwich.
 

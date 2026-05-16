@@ -73,7 +73,7 @@ Cut off the heat. Taste and adjust with salt as needed. Remove the pan from the 
 
 ### Step 4: Roll & fill the dough
 
-Preheat the oven to 400°F/204°C. Remove your dough from the fridge.
+Preheat the oven to 204°C. Remove your dough from the fridge.
 
 While the oven preheats, roll out the dough and fill the patties:
 
@@ -93,7 +93,7 @@ Add the completed patty to a baking sheet. Repeat with remaining beef patty doug
 
 ### Step 5: Bake
 
-Slide the baking sheet of filled beef patties into the preheated 400°F/204°C oven and Bake for 15-20 minutes or until light browning barely starts to appear on the crust.
+Slide the baking sheet of filled beef patties into the preheated 204°C oven and Bake for 15-20 minutes or until light browning barely starts to appear on the crust.
 
 Remove the patties from the oven and slide them off the hot pan to cool down a bit (ideally on a wire rack). Enjoy warm.
 

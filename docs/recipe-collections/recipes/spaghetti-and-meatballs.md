@@ -51,13 +51,13 @@ My take on the classic dish.
 
 ### Step 1: Mix & shape the meatballs
 
-Preheat the oven to 400°F/204°C.
+Preheat the oven to 204°C.
 
 Combine all of the meatball ingredients into a large bowl and mix until evenly combined.
 
 Form around 9 large meatballs and place them on a sheet tray for baking.
 
-Place the meatballs in the oven and roast them until they reach 155°F/68°C.
+Place the meatballs in the oven and roast them until they reach 68°C.
 
 ### Step 2: Simmer the sauce
 

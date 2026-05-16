@@ -19,7 +19,7 @@ Note: When stir-frying on a home range, it is best practice to cook in batches a
 
 > Heat Type: Conduction w/ fat
 
-> Pan Temperature: 400°F/204°C+
+> Pan Temperature: 204°C+
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Coagulation](../reactions/coagulation.md), [Dehydration](../reactions/dehydration.md)
 

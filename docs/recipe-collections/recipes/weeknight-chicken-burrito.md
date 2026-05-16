@@ -55,7 +55,7 @@ Set a griddle over high heat. Add a drizzle of oil.
 
 Once it’s hot, add the chicken and let it sear until well browned on each side.
 
-Check the temp to make sure they reach 165°F/74°C.
+Check the temp to make sure they reach 74°C.
 
 While the chicken sears, start making the beans.
 

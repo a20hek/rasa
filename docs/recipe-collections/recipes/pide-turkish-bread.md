@@ -63,7 +63,7 @@ If the dough is springing back from the edges of the pan, cover and let it rest 
 
 Cover the pan and let the Pide proof for another 30 minutes.
 
-Meanwhile, preheat the oven to 450°F/232°C.
+Meanwhile, preheat the oven to 232°C.
 
 ### Step 4: Dimple & add egg wash, toppings
 

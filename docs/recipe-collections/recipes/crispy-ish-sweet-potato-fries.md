@@ -35,7 +35,7 @@ Lower-calorie baked sweet potato fries.
 
 ### Step 1: Prepare the potatoes & boil
 
-Set a pot of water to boil over medium-high heat. Preheat your oven to 475° F/246° C.
+Set a pot of water to boil over medium-high heat. Preheat your oven to 246°C.
 
 Meanwhile, peel the sweet potatoes and cut them into approximately 1/3 inch slices, then into roughly 1/3 inch thick fries.
 

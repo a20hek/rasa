@@ -53,17 +53,17 @@ Place the chicken on a baking sheet. Sprinkle salt on both sides and place uncov
 
 ### Step 2: Roast the chilies for the sauce
 
-Meanwhile, preheat the oven to 425°F/212°C. Line a baking sheet with parchment paper. Cut all the peppers in half.
+Meanwhile, preheat the oven to 218°C. Line a baking sheet with parchment paper. Cut all the peppers in half.
 
 Add a drizzle of oil and place the halved peppers down on the sheet. Roast in the oven until completely soft and the skin has slightly blackened. Remove the roasted peppers from the oven and place in a bowl. Cover with plastic wrap and let steam for at least 10 minutes.
 
 ### Step 3: Marinate & roast the chicken
 
-Meanwhile, increase the oven to 450°F/232°C.
+Meanwhile, increase the oven to 232°C.
 
 In a mortar & pestle, grind the cumin then mash or grate 6 cloves of garlic. Mix the garlic, fresh ground cumin, and mayo together. Rub the mayo marinade over the exterior of the chicken thighs and place the fat side up on the sheet before moving to the preheated oven.
 
-Roast until the thighs are around 165-170°F/76°C. If the skin is not crisp and browned, set the oven to broil to finish.
+Roast until the thighs are around 73-76°C. If the skin is not crisp and browned, set the oven to broil to finish.
 
 Set the chicken aside to rest before dicing into cubes for filling the enchiladas
 
@@ -77,7 +77,7 @@ Taste it and adjust with salt and a splash of vinegar for brightness.
 
 ### Step 5: Prep enchiladas
 
-Ensure the oven is still preheated to 450°F/232°C.
+Ensure the oven is still preheated to 232°C.
 
 In a 9x13” baking pan or casserole dish, add a thin layer of the enchilada verde sauce to the bottom.
 

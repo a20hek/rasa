@@ -38,7 +38,7 @@ Fluffy and light.
 
 ### Step 1: Activate the yeast & mix dry ingredients
 
-Warm the milk in the microwave until lukewarm (100°F/38°C). Add the yeast and stir until dissolved. Let stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
+Warm the milk in the microwave until lukewarm (38°C). Add the yeast and stir until dissolved. Let stand for 5-10 minutes until light foam surfaces and little bubbles are visible.
 
 Note: Proofing is done to test the viability of the yeast. If there is no foam surface or little bubbles the yeast is likely dead and should be discarded.
 
@@ -68,9 +68,9 @@ Place on a greased baking sheet and cover. Let rise until doubled in size, anoth
 
 ### Step 5: Bake & finish
 
-Preheat the oven to 400°F/204°C. Place the buns in the oven and bake for about 10 minutes.
+Preheat the oven to 204°C. Place the buns in the oven and bake for about 10 minutes.
 
-They should be golden brown on top and lightly browned on the bottom. Optionally, check the internal temp, which should be at least 203°F/95°C.
+They should be golden brown on top and lightly browned on the bottom. Optionally, check the internal temp, which should be at least 95°C.
 
 Once your buns are golden brown and fluffy, take them out and lightly brush them with melted butter over top. Optionally garnish with flakey salt or chopped rosemary.
 

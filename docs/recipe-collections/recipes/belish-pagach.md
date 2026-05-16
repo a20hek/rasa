@@ -39,7 +39,7 @@ Potato & cheese filled dough.
 
 ### Step 1: Activate the yeast & prepare potatoes
 
-Warm the milk in the microwave until luke-warm (100°F/38°C). Add the instant yeast and stir together. Set aside and let activate for 5-10 minutes.
+Warm the milk in the microwave until luke-warm (38°C). Add the instant yeast and stir together. Set aside and let activate for 5-10 minutes.
 
 Mix the flour, salt, and sugar in a large bowl.
 
@@ -73,7 +73,7 @@ When the dough doubles, turn it out and cut into two pieces.
 
 Flatten the dough by hand and thin out the edges. Add half of the potato filling and fold the sides up around the dough like a large dumpling. Do the same with the other piece of dough. Let rest for 20 minutes.
 
-Preheat the oven to 400°F/ 204°C.
+Preheat the oven to 204°C.
 
 Using your hands, flatten the potato filled dough until about 1 inch thick. Move each of the belish to a buttered baking sheeting. Using a rolling pin, flatten the belish until it is about 1/2 inch thick.
 

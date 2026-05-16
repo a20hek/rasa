@@ -72,7 +72,7 @@ Add in the heavy cream and the Worcestershire. Simmer for a few minutes or until
 
 Over low heat, start heating about a 1/4 inch of oil in a wide, shallow frying pan.
 
-Once your oil has reached 375°F/190°C, lay one breaded cutlet into the pan at a time (away from you to avoid oil splashing). Shallow fry for 2 minutes per side or until golden brown.
+Once your oil has reached 190°C, lay one breaded cutlet into the pan at a time (away from you to avoid oil splashing). Shallow fry for 2 minutes per side or until golden brown.
 
 Focus on getting a quick but even, golden brown crust. The thin meat should be cooked through by the time the exterior is set.
 

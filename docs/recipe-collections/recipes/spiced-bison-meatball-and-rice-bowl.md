@@ -53,7 +53,7 @@ Once the cooking surface is hot, add the meatballs to the pan to sear.
 
 Rotate the meatballs every few minutes so that you get browning and light charring on all sides. Adjust the heat as needed.
 
-Once the meatballs have a crust on all sides, use a thermometer to check their internal temperature. Pull the meatballs off the heat when they read 140°F/60°C.
+Once the meatballs have a crust on all sides, use a thermometer to check their internal temperature. Pull the meatballs off the heat when they read 60°C.
 
 Meatballs take different amounts of time to cook through depending on their size and your pan.
 

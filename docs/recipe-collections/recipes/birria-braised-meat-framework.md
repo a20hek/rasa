@@ -55,7 +55,7 @@ Add chiles and dried spices and toast for 30 seconds or until fragrant. Add all 
 
 Add enough broth to cover the meat. Bring to a simmer, partially cover, and let it braise on the stove for 1-2 hours.
 
-Alternatively pop into a 300°F/150°C oven if you don’t want to monitor the flame.
+Alternatively pop into a 150°C oven if you don’t want to monitor the flame.
 
 ### Step 4: Finish the braise
 

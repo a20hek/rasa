@@ -60,9 +60,9 @@ Move the chicken strips to the flour mixture and coat them until completely cove
 
 ### Step 3: Fry the chicken
 
-At the stove, use a thermometer to verify the oil temperature is between 350-375°F/176-190°C.
+At the stove, use a thermometer to verify the oil temperature is between 176-190°C.
 
-Slowly drop the chicken thigh pieces into the oil until they become golden brown. In total, fry the chicken for about 6 to 8 minutes, agitating and flipping a couple of times. I like to pull my chicken at 155°F/68°C.
+Slowly drop the chicken thigh pieces into the oil until they become golden brown. In total, fry the chicken for about 6 to 8 minutes, agitating and flipping a couple of times. I like to pull my chicken at 68°C.
 
 Move the strips to a paper towel on a wire rack, dab the excess oil, and then place them on the wire rack so they don't get soggy.
 

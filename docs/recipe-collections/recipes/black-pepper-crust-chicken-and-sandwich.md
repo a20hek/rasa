@@ -49,7 +49,7 @@ Preheat a pan or griddle over high heat. Once smoking, add enough olive oil to c
 
 Add the pepper-crusted chicken to the pan, press it down to ensure even contact, then allow to sear undisturbed for a few minutes to develop a deeply browned crust.
 
-Flip to sear the other side. Remove from the heat once the bottom has also developed a crust and the internal temperature of the breast reaches 155°F/68°C.
+Flip to sear the other side. Remove from the heat once the bottom has also developed a crust and the internal temperature of the breast reaches 68°C.
 
 ### Step 3: Prep the ranch & sandwich components
 

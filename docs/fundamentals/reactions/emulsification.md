@@ -15,7 +15,7 @@ Emulsification happens by force, usually by incremental whisking or blending, to
 - Butter is already an emulsion of milk fats and water content, and can be used to jumpstart the emulsion process in a liquid sauce.
 - Starches like a corn starch slurry, roux, or gums can help emulsions stabilize, although this has more to do with their gelating properties.
 
-Heat can break an emulsion, depending on emulsifier strength. Weak butter-based emulsions can split at only 180°F/82°C. Processed foods like American cheese often contain powerful emulsifying salts like sodium citrate, which can keep oils and fats connected even at high heat.
+Heat can break an emulsion, depending on emulsifier strength. Weak butter-based emulsions can split at only 82°C. Processed foods like American cheese often contain powerful emulsifying salts like sodium citrate, which can keep oils and fats connected even at high heat.
 
 > Catalyst: Physical force, emulsifying agent
 

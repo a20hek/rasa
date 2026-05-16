@@ -57,7 +57,7 @@ Cover a baking sheet with aluminum foil and place a wire rack on top. Arrange th
 
 ### Step 2: Roast the chicken
 
-When ready to roast, preheat the oven to 450° F/232° C.
+When ready to roast, preheat the oven to 232°C.
 
 Remove the chicken from the fridge. If there are any visible water droplets on the chicken's exterior, gently blot them off with a paper towel.
 

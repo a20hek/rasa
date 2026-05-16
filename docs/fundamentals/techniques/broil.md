@@ -16,7 +16,7 @@ Because this takes place at high temperatures, the [Maillard Reaction](../reacti
 
 > Heat Type: Radiation
 
-> Pan Surface Temperature: 500°F/260°C
+> Pan Surface Temperature: 260°C
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Dehydration](../reactions/dehydration.md)
 

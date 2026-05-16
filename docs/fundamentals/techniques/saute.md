@@ -14,7 +14,7 @@ Sauteing is the act of quickly cooking food in a small amount of oil or fat over
 
 > Heat Type: Conduction w/ fat
 
-> Pan Surface Temperature: 375°F/190°C
+> Pan Surface Temperature: 190°C
 
 > Food Reaction(s): [Maillard](../reactions/maillard.md), [Caramelization](../reactions/caramelization.md), [Coagulation](../reactions/coagulation.md)
 

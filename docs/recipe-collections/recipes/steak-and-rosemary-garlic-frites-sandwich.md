@@ -53,7 +53,7 @@ Meanwhile, wash the potatoes and slice them into fairly thin french fry shapes.
 
 Once the water has boiled, add the potatoes. Set a timer for 6 minutes, giving them a stir occasionally. Once cooked, drain the potatoes and spread on a tray or cutting board while we heat the oil.
 
-Add about .5 to 1 inch of neutral oil to the pot, enough to shallow fry the potatoes. Bring the oil temp to 325°F - 350°F/163°C.
+Add about .5 to 1 inch of neutral oil to the pot, enough to shallow fry the potatoes. Bring the oil temp to 162-176°C.
 
 ### Step 3: Fry the potatoes
 
@@ -71,7 +71,7 @@ Set a cast iron or carbon steel pan over medium-high heat along with a drizzle o
 
 If wet, dry off the exterior of the steak with a paper towel and then slide it into the ripping hot pan. Sear the steak on one side for 1-2 minutes before flipping to the other side for 1-2 minutes. Flip it a couple of times to develop the crust.
 
-Cook until the internal temperature reaches 130°-135°F /55°C, then pull off the heat to let rest. Turn the heat to low.
+Cook until the internal temperature reaches 54-57°C, then pull off the heat to let rest. Turn the heat to low.
 
 ### Step 5: Make the sauce & assemble the sandwich
 

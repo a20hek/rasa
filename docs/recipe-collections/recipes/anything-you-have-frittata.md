@@ -34,7 +34,7 @@ Weeknight refrigerator meal.
 
 ### Step 1: Prep ingredients & beat the eggs
 
-Preheat the oven to 400° F/204°C.
+Preheat the oven to 204°C.
 
 Whisk together the eggs and milk (if using — it makes the frittata fluffier) with a generous pinch of salt.
 

@@ -53,7 +53,7 @@ Full coverage is necessary to “blacken” the chicken during searing in the ne
 
 Add a bit of oil to a pan on medium-high heat then lay in the chicken. Sear the chicken until the seasonings “blacken” or form a light crust, making sure to flip frequently while doing so to avoid burning.
 
-Use a thermometer to pull the chicken breast at around 155°F/68°C (internal temp).
+Use a thermometer to pull the chicken breast at around 68°C (internal temp).
 
 Remove the chicken from the pan and let it rest before slicing.
 

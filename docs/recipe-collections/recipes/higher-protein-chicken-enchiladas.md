@@ -74,7 +74,7 @@ At this point, you can cook them right away, or cover & store in the fridge & ba
 
 ### Step 5: Bake & serve
 
-Preheat an oven to 375°F/190°C, then bake uncovered for 10-20 minutes until warmed through & the cheese is melted & lightly browned.
+Preheat an oven to 190°C, then bake uncovered for 10-20 minutes until warmed through & the cheese is melted & lightly browned.
 
 Serve warm & optionally garnish with sour cream & onions.
 

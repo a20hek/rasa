@@ -49,7 +49,7 @@ Set each breaded cutlet aside onto a plate or tray until frying.
 
 Over low heat, start heating about a 1/4 inch of oil in a wide, shallow frying pan.
 
-Once your oil has reached 375°F/190°C, lay a breaded chicken into the pan (away from you to avoid oil splashing) and shallow fry for 3-4 minutes per side or until golden brown and the meat reaches 155°F/ 56°C internal temperature.
+Once your oil has reached 190°C, lay a breaded chicken into the pan (away from you to avoid oil splashing) and shallow fry for 3-4 minutes per side or until golden brown and the meat reaches 68°C internal temperature.
 
 Focus on getting a quick but even, golden brown crust. The thin meat should be cooked through by the time the exterior is set.
 

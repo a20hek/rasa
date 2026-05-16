@@ -38,7 +38,7 @@ An American diner classic.
 
 ### Step 1: Make the biscuits
 
-Preheat the oven to 450F°/ 232°C.
+Preheat the oven to 232°C.
 
 Place the flour in a mixing bowl. Gradually add the heavy cream while stirring until a cohesive but lumpy dough forms. Be careful not to over mix. Transfer the dough to the counter and roll it into roughly a 6-inch square.
 

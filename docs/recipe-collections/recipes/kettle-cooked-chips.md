@@ -31,7 +31,7 @@ Golden brown & crunchy.
 
 ### Step 1: Heat the oil
 
-Set a wok or pot over medium-low heat and add the oil about 1 to 2 inches up the pot. Set a thermometer to monitor the temperature to reach 315°F/ 157°C.
+Set a wok or pot over medium-low heat and add the oil about 1 to 2 inches up the pot. Set a thermometer to monitor the temperature to reach 157°C.
 
 ### Step 2: Cut the chips
 
@@ -43,7 +43,7 @@ Using a mandolin set on 2 mm (~1/16th inch), a very sharp knife, or a potato pee
 
 Add the potatoes to the hot oil and fry for 9 to 11 minutes while stirring fairly constantly. Keep an eye on the chips to make sure they don’t go from golden brown to dark brown.
 
-Note: The oil should drop to roughly 250°F/121°C in the first few minutes before stabilizing and increasing back to 315°F/157°C. This may be slightly different depending on the size of the pot and the amount of oil you use.
+Note: The oil should drop to roughly 121°C in the first few minutes before stabilizing and increasing back to 157°C. This may be slightly different depending on the size of the pot and the amount of oil you use.
 
 ### Step 4: Drain & salt the chips
 

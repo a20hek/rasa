@@ -48,7 +48,7 @@ Repeat for remaining servings.
 
 ### Step 2: Bake the fish
 
-Transfer parchment boats to a cooking sheet, then bake at 375°F/190°C for 10-15 minutes or until the vegetables are tender and the fish is cooked through.
+Transfer parchment boats to a cooking sheet, then bake at 190°C for 10-15 minutes or until the vegetables are tender and the fish is cooked through.
 
 ### Step 3: Serve
 

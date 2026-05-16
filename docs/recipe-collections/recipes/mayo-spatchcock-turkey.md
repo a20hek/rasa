@@ -37,7 +37,7 @@ Crispy & juicy roasted turkey.
 
 ### Step 1: Spatchcock the turkey
 
-Preheat oven to 450°F/232°C.
+Preheat oven to 232°C.
 
 Place the turkey, breast side down, on the cutting board. Using kitchen shears, start cutting form the bottom cavity up towards the neck to remove the backbone and neck of the turkey.
 
@@ -61,7 +61,7 @@ With about 10-15 minutes left, take the turkey out of the oven and brush on the 
 
 ### Step 4: Check temperature & let turkey rest
 
-Using a meat thermometer, test the breast meat and thigh meat separately. When the breast reaches 155°F (68°C) and the thigh is at least 175°F (79°C), pull the turkey out to rest on the cutting board for 10 minutes. Through carryover cooking, the temperature of the turkey will rise slightly while resting.
+Using a meat thermometer, test the breast meat and thigh meat separately. When the breast reaches 68°C and the thigh is at least 79°C, pull the turkey out to rest on the cutting board for 10 minutes. Through carryover cooking, the temperature of the turkey will rise slightly while resting.
 
 Pulling the turkey at these temperatures ensures moist breast meat and succulent dark meat with the connective tissue broken down.
 

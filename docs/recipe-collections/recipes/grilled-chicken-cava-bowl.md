@@ -66,7 +66,7 @@ Turn on the broiler setting on the oven to high.
 
 ### Step 3: Broil the chicken
 
-Slide the chicken underneath the broiler and cook for about 15 minutes or until 170°F/76°C internal.
+Slide the chicken underneath the broiler and cook for about 15 minutes or until 76°C internal.
 
 Flip the chicken once halfway through cooking, keeping an eye on everything. Some charring is fine, but the chicken can burn easily because of the agave. Rotate or lower the rack if needed.
 

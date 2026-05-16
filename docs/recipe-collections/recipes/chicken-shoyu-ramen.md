@@ -47,7 +47,7 @@ Set a stockpot over a scale and add the thigh bones, backbones, and wings. Note 
 
 Bring the pot to a boil on the stove top and skim the rising scum off the top.
 
-Then, you can keep it simmering on the stove or add the pot with the lid cracked to a 190°F/87°C oven and let it bake / simmer for 5 hours, that way you don’t have to babysit the broth on the stove.
+Then, you can keep it simmering on the stove or add the pot with the lid cracked to a 87°C oven and let it bake / simmer for 5 hours, that way you don’t have to babysit the broth on the stove.
 
 While that goes, prep the remaining components.
 
@@ -55,9 +55,9 @@ While that goes, prep the remaining components.
 
 Salt the chicken thighs and let them dry brine in the fridge for at least one hour.
 
-Preheat the oven to 275°F/133°C. Pull the chicken out and roll each thigh up into a tight log as best you can. Secure with 3 or 4 pieces of butcher's twine. Set the chicken on a wire rack over a baking sheet and place in the oven.
+Preheat the oven to 133°C. Pull the chicken out and roll each thigh up into a tight log as best you can. Secure with 3 or 4 pieces of butcher's twine. Set the chicken on a wire rack over a baking sheet and place in the oven.
 
-Gently roast until the interior reaches 165°F/73°C. Wrap the chicken in plastic wrap and hold in the fridge until ready to use, where you can unwrap and slice into “chasu” like pieces for topping the ramen.
+Gently roast until the interior reaches 73°C. Wrap the chicken in plastic wrap and hold in the fridge until ready to use, where you can unwrap and slice into “chasu” like pieces for topping the ramen.
 
 ### Step 3: Render & infuse the scallion oil
 
@@ -75,7 +75,7 @@ Set a container over a scale and add the soy sauce, kombu, and mirin. Put a lid 
 
 Cold steeping gets you the best flavor. In a pinch, you could skip this step.
 
-Pour the mixture into a pot and heat to 160°F/71°C, and hold there for about 10 minutes. Remove the kombu and add in the dashi flakes. Heat to 180°F/82°C and hold for 10 minutes being careful not to boil.
+Pour the mixture into a pot and heat to 71°C, and hold there for about 10 minutes. Remove the kombu and add in the dashi flakes. Heat to 82°C and hold for 10 minutes being careful not to boil.
 
 Strain the mixture into a jar or squirt bottle. Stores in the fridge indefinitely.
 

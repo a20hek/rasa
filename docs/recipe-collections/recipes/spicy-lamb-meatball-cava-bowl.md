@@ -64,7 +64,7 @@ Preheat a pan or skillet over medium-high heat.
 
 Once the pan is hot, place the meatballs in a single layer, leaving space between them. Let them sear undisturbed until a deep crust forms, then rotate every few minutes to brown all sides evenly.
 
-Adjust the heat as necessary to avoid scorching while still maintaining strong browning. When the meatballs reach an internal temperature of 140°F/60°C, remove them from the heat to keep them juicy and tender.
+Adjust the heat as necessary to avoid scorching while still maintaining strong browning. When the meatballs reach an internal temperature of 60°C, remove them from the heat to keep them juicy and tender.
 
 Because these meatballs contain no breadcrumbs, avoiding overcooking is key.
 

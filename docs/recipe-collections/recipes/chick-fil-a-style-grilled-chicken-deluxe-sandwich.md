@@ -53,7 +53,7 @@ Add mayo, lemon zest, thyme, black pepper, salt and garlic to the chicken and mi
 
 ### Step 2: Sear the chicken & crisp the bacon
 
-To a medium-hot griddle or cast iron pan, sear the chicken for 3 to 4 minutes on each side until browned. Cook the chicken until the internal temp reaches 150 to 155° F - 68°C. Let rest for 5 minutes before serving.
+To a medium-hot griddle or cast iron pan, sear the chicken for 3 to 4 minutes on each side until browned. Cook the chicken until the internal temp reaches 65-68°C. Let rest for 5 minutes before serving.
 
 Meanwhile, cook the slices of bacon for the sandwich.
 
